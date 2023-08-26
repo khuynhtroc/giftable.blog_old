@@ -48,11 +48,11 @@
           {{ post.title }}
         </a>
       </h3>
-
-      <div class='c-post-card__meta'>
+      <p class="card-text">{{ post.excerpt | strip_html | truncatewords: 30 }}</p>
+      <!--div class='c-post-card__meta'>
         <time class='c-post-card__date' datetime='{{ post.date | date_to_xmlschema }}' title='{{ post.date | date: '%d %b %Y' }}'>{{ post.date | date: '%d %b %Y' }}</time>
         <div class='c-post-card__author'>{{ post.author }}</div>
-      </div>
+      </div-->
     </div>
   </div>
 
