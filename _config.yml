@@ -11,8 +11,8 @@ theme_version: 1.0.5
 title:              Giftable
 logo:               /images/Logo.png
 description:        Thoughts, Stories and Ideas
-baseurl:            '' # The subpath of your site, e.g. /blog
-url:                'https://giftable.blog/' # The base hostname & protocol for your site
+baseurl:            'https://giftable.blog' # The subpath of your site, e.g. /blog
+url:                'https://giftable.blog' # The base hostname & protocol for your site
 twitter:            #
 facebook:           #
 instagram:          #
