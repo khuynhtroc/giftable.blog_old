@@ -2,7 +2,7 @@
 layout: page
 title: About
 image: '/images/pages/1.jpg'
-url: /about/
+permalink: /about/
 ---
 
 You love minimalism, want to be productive focusing only on the important things and want to take jekyll to the next level, Nubia is designed for you. Nubia focus on showing your content in a clean and simple way, focus on images, typography, and white space.
