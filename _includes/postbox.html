@@ -28,9 +28,9 @@
             {% endif %}
             <p class="card-text">{{ post.excerpt | strip_html | truncatewords: 30 }}</p>
         </div>
-        <div class="card-footer bg-white">
+        <!--div class="card-footer bg-white">
             <div class="wrapfooter">
-                <!--{% if post.author %}
+                <{% if post.author %}
                 <span class="meta-footer-thumb">
                 {% if author.avatar %}
                 <img class="author-thumb" src="{{site.baseurl}}/{{ author.avatar }}" alt="{{ author.display_name }}">
@@ -40,12 +40,12 @@
                 </span>
                 <span class="author-meta">
                 <span class="post-name font-weight-bold">{{ author.display_name }}</span> 
-                {% endif %}-->
+                {% endif %}>
                 <span class="post-date">Last Updated on {{ post.date | date_to_string }}</span>
                 </span>
                 <div class="clearfix"></div>
             </div>
-        </div>
+        </div-->
     </div>
 </div>
 <!-- end post -->
