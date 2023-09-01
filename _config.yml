@@ -1,11 +1,11 @@
 # Site
-name: "Pijamas Beauty"
-title: "Pijamas Beauty"
+name: "Giftable"
+title: "Giftable"
 description: "All Fashion Dog Style trends of this year and best clothes for your Dog pet! See more ideas about dog clothes, love pet, trending fashion outfits. You love pets or you are a dog owner? All trends of this year and best clothes for your pet! Follow us!"
 logo: 'assets/images/logo.png'
 favicon: 'assets/images/logo.png'
-baseurl: 'https://khuynhtroc.github.io/pijamas.beauty'
-google_analytics: 'UA-237007012-1'
+baseurl: 'https://giftable.blog'
+google_analytics: ''
 disqus: ''
 mailchimp-list: ''
 include: ["_pages"]
