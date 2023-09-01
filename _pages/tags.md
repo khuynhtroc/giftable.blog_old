@@ -1,22 +1,5 @@
 ---
-layout: tag_page
+layout: tags
 title: Tags
 permalink: /tags
 ---
-
-
-<div class='o-wrapper'>
-  <div class='o-grid'>
-    <div class='o-grid__col o-grid__col--full'>
-      <div class='c-archive'>
-        <h4 class='c-archive__title'>{{ page.tag }}</h4>
-      </div>
-    </div>
-  </div>
-
-  <div class='o-grid js-grid'>
-    {% for post in page.posts %}
-      {% include post-card.html %}
-    {% endfor %}
-  </div>
-</div>

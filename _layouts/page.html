@@ -2,20 +2,17 @@
 layout: default
 ---
 
-{% include page-hero.html %}
-
-<div class='o-wrapper'>
-
-  <div class='o-grid'>
-    <div class='o-grid__col o-grid__col--center o-grid__col--3-4-m o-grid__col--2-3-l'>
-      <article class='c-post page'>
-
-        <div class='c-content'>
-          {{ content }}
-        </div>
-
-      </article>
+<div class="page-single">
+    <div class="entry-header">       
+        <h1 class="posttitle">{{ page.title }}</h1>        
     </div>
-  </div>
-
 </div>
+
+<!-- Featured Image -->
+{% include featured-image.html %}
+
+<!-- Content -->
+{% include article.html %}
+
+<!-- Comments if not disabled with comments: false -->
+{% include comments.html %}
