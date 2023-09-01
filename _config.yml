@@ -2,8 +2,8 @@
 name: "Giftable"
 title: "Giftable"
 description: "Life is short. Time is fast. So enjoy every moment as it comes."
-logo: 'assets/images/logo.png'
-favicon: 'assets/images/logo.png'
+logo: 'assets/images/Logo_fullsize.png'
+favicon: 'assets/images/favicon_giftable.ico'
 baseurl: 'https://giftable.blog'
 google_analytics: ''
 disqus: ''
