@@ -103,23 +103,95 @@ menus:
   - title: Home
     font: fab fa-fort-awesome
     url: /
-  - title: About
-    font: fas fa-paw
+  - title: Recipients
+    font:
+    url: /recipients/
     submenus:
-      - title: Me
-        font: fas fa-user-astronaut
-        url: /about/
-      - title: Theme
-        font: fas fa-meteor
-        url: /theme/
-  - title: Archive
-    font: fas fa-archive
-    url: /archive/
-  - title: Links
-    font: fas fa-link
-    url: /links/
-
-
+      - title: Women
+        font: 
+        url: /women/
+      - title: Parents
+        font: 
+        url: /parents/
+      - title: Mom
+        font: 
+        url: /mom/
+      - title: Men
+        font: 
+        url: /men/
+      - title: Kids & Teens
+        font: 
+        url: /kids-and-teens/
+      - title: Friends
+        font: 
+        url: /friends/
+      - title: Dad
+        font: 
+        url: /dad/
+      - title: Couples
+        font: 
+        url: /couples/
+      - title: Anyone
+        font: 
+        url: /anyone/
+  - title: Occasions
+    font: 
+    url: /occasions/
+    submenus:
+      - title: Wedding
+        font: 
+        url: /wedding/
+      - title: Valentine
+        font: 
+        url: /valentine/
+      - title: Housewarming
+        font: 
+        url: /housewarming/
+      - title: Halloween
+        font: 
+        url: /halloween/
+      - title: Graduation
+        font: 
+        url: /graduation/
+      - title: Christmas
+        font: 
+        url: /christmas/
+      - title: Birthday
+        font: 
+        url: /birthday/
+      - title: Anniversary
+        font: 
+        url: /anniversary/
+  - title: Interests
+    font: 
+    url: /interests/
+    submenus:
+      - title: Popular
+        font: 
+        url: /popular/
+      - title: Outdoors & Sports
+        font: 
+        url: /outdoors & sports/
+      - title: Animal Lovers
+        font: 
+        url: /animal lovers/
+  - title: Blog
+    font: 
+    url: /blog/
+    submenus:
+      - title: Relationship
+        font: 
+        url: /relationship/
+      - title: Parenting
+        font: 
+        url: /parenting/
+      - title: Holiday
+        font: 
+        url: /holiday/
+      - title: Family
+        font: 
+        url: /family/
+  
 # Comment settings
 comment:
   provider: gitalk # false (default), "disqus", "gitalk", "valine"
