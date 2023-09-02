@@ -3,13 +3,13 @@ title: Gungnir
 SEOTitle: Jekyll theme Gungnir
 description: Jekyll version of the blog theme Gungnir.
 keyword: "jekyll, theme, blog, blog theme"
-url: "https://khuynhtroc.github.io/newblog"      # your host, for absolute URL
-baseurl: "https://khuynhtroc.github.io/newblog"                                         # for example, '/blog' if your blog hosted on 'host/blog'
+url: "https://giftable.blog"      # your host, for absolute URL
+baseurl: "https://giftable.blog"                                         # for example, '/blog' if your blog hosted on 'host/blog'
 avatar: "img/header-avatar.jpeg"                    # the avatar showing on the homepage
 
 
 # GitHub repository (if the site is hosted by GitHub)
-repository: khuynhtroc/newblog
+repository: khuynhtroc/giftable.blog
 repository_branch: main
 
 
