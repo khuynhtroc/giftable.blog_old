@@ -109,88 +109,88 @@ menus:
     submenus:
       - title: Women
         font: 
-        url: /recipients/women/
+        url: /women/
       - title: Parents
         font: 
-        url: /recipients/parents/
+        url: /parents/
       - title: Mom
         font: 
-        url: /recipients/mom/
+        url: /mom/
       - title: Men
         font: 
-        url: /recipients/men/
+        url: /men/
       - title: Kids & Teens
         font: 
-        url: /recipients/kids-and-teens/
+        url: /kids-and-teens/
       - title: Friends
         font: 
-        url: /recipients/friends/
+        url: /friends/
       - title: Dad
         font: 
-        url: /recipients/dad/
+        url: /dad/
       - title: Couples
         font: 
-        url: /recipients/couples/
+        url: /couples/
       - title: Anyone
         font: 
-        url: /recipients/anyone/
+        url: /anyone/
   - title: Occasions
     font: 
     url: /occasions/
     submenus:
       - title: Wedding
         font: 
-        url: /occasions/wedding/
+        url: /wedding/
       - title: Valentine
         font: 
-        url: /occasions/valentine/
+        url: /valentine/
       - title: Housewarming
         font: 
-        url: /occasions/housewarming/
+        url: /housewarming/
       - title: Halloween
         font: 
-        url: /occasions/halloween/
+        url: /halloween/
       - title: Graduation
         font: 
-        url: /occasions/graduation/
+        url: /graduation/
       - title: Christmas
         font: 
-        url: /occasions/christmas/
+        url: /christmas/
       - title: Birthday
         font: 
-        url: /occasions/birthday/
+        url: /birthday/
       - title: Anniversary
         font: 
-        url: /occasions/anniversary/
+        url: /anniversary/
   - title: Interests
     font: 
     url: /interests/
     submenus:
       - title: Popular
         font: 
-        url: /interests/popular/
+        url: /popular/
       - title: Outdoors & Sports
         font: 
-        url: /interests/outdoors & sports/
+        url: /outdoors & sports/
       - title: Animal Lovers
         font: 
-        url: /interests/animal lovers/
+        url: /animal lovers/
   - title: Blog
     font: 
     url: /blog/
     submenus:
       - title: Relationship
         font: 
-        url: /blog/relationship/
+        url: /relationship/
       - title: Parenting
         font: 
-        url: /blog/parenting/
+        url: /parenting/
       - title: Holiday
         font: 
-        url: /blog/holiday/
+        url: /holiday/
       - title: Family
         font: 
-        url: /blog/family/
+        url: /family/
   
 # Comment settings
 comment:
