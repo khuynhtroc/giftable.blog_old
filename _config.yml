@@ -5,7 +5,7 @@ description: Jekyll version of the blog theme Gungnir.
 keyword: "jekyll, theme, blog, blog theme"
 url: "https://giftable.blog"      # your host, for absolute URL
 baseurl: "https://giftable.blog"                                         # for example, '/blog' if your blog hosted on 'host/blog'
-avatar: "img/header-avatar.jpeg"                    # the avatar showing on the homepage
+avatar: "img/logo_giftable_fullsize.png"                    # the avatar showing on the homepage
 
 
 # GitHub repository (if the site is hosted by GitHub)
