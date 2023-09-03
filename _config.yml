@@ -1,6 +1,6 @@
 # Site settings
-title: Giftable
-SEOTitle: Gift Hub
+title: Giftable - Gift Hub
+SEOTitle: Giftable
 description: Jekyll version of the blog theme Gungnir.
 keyword: "jekyll, theme, blog, blog theme"
 url: "https://giftable.blog"      # your host, for absolute URL
@@ -9,8 +9,8 @@ avatar: "img/header-avatar.jpeg"                    # the avatar showing on the 
 
 
 # GitHub repository (if the site is hosted by GitHub)
-repository: khuynhtroc/giftable.blog
-repository_branch: main
+repository: 
+repository_branch: 
 
 
 # Theme style settings
@@ -54,13 +54,13 @@ collections:
 # SNS settings
 sns:
   RSS: true
-  github_username: Renovamen
+  github_username: 
   weibo_username:
-  zhihu_username: chao-neng-gui-su
-  twitter_username: renovamen_zxh
-  facebook_username: renovamen.zou
-  linkedin_username: xiaohan-zou-55bba0160
-  email_address: renovamenzxh@gmail.com
+  zhihu_username: 
+  twitter_username: 
+  facebook_username: 
+  linkedin_username: 
+  email_address: 
 
 
 # Build settings
@@ -194,21 +194,21 @@ menus:
   
 # Comment settings
 comment:
-  provider: gitalk # false (default), "disqus", "gitalk", "valine"
+  provider: disqus # false (default), "disqus", "gitalk", "valine"
 
   # Disqus settings
-  disqus_username: renovamen
+  disqus_username: giftable-blog
 
   # Gitalk settings
   # https://github.com/gitalk/gitalk
   gitalk:
-    clientID: 'faf464da633b08ff5317'
-    clientSecret: '402324fc860894e5fcba6320fddbddd1ec7f5644'
+    clientID: ''
+    clientSecret: ''
     repo: gitalk-comments
-    owner: This-is-an-Apple
+    owner: 
     admin:
-      - Renovamen
-      - This-is-an-Apple
+      - 
+      - 
 
   # Valine settings
   # https://valine.js.org/
