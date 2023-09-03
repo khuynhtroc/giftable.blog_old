@@ -3,7 +3,7 @@ layout: post
 title: Hello Word
 subtitle: Welcome to Jekyll Theme Gungnir
 header-img: "img/in-post/2020-10-07/header.jpg"
-header-style: text
+header-style: image
 catalog: true
 tags:
   - 摸鱼
