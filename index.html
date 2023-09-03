@@ -30,7 +30,7 @@ header-img:
           <img src="{{ _assets_baseurl }}/{{ post.header-img }}" class="cover">
       </a>
       <div class="else">
-        <p class="post-meta">{{ post.date | date: "%B %-d, %Y" }}</p>
+        <!--p class="post-meta">{{ post.date | date: "%B %-d, %Y" }}</p-->
         <a href="{{ post.url | prepend: site.baseurl }}">
           <h2 class="post-title">{{ post.title }}</h2>
           {% if post.subtitle %}
@@ -39,9 +39,9 @@ header-img:
         </a>
         <p class="post-content-preview">
           {% if post.lang == "en" %}
-            {{ post.content | strip_html | truncate:200 }}
+            {{ post.content | strip_html | truncate:300 }}
           {% else %}
-            {{ post.content | strip_html | truncate:100 }}
+            {{ post.content | strip_html | truncate:200 }}
           {% endif %}
         </p>
       </div>
