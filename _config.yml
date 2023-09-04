@@ -6,7 +6,7 @@ keyword: "jekyll, theme, blog, blog theme"
 url: "https://giftable.blog"      # your host, for absolute URL
 baseurl: "https://giftable.blog"                                         # for example, '/blog' if your blog hosted on 'host/blog'
 avatar: "img/Logo-giftable.jpg"                    # the avatar showing on the homepage
-
+allow_search_engine: false
 
 # GitHub repository (if the site is hosted by GitHub)
 repository: 
@@ -66,7 +66,7 @@ sns:
 # Build settings
 # from 2016, 'pygments' is unsupported on GitHub Pages. Use 'rouge' for highlighting instead.
 # highlighter: rouge
-permalink: pretty
+permalink: "/:categories/:title/"
 paginate: 10
 exclude:
   - package.json
@@ -89,6 +89,8 @@ plugins:
   - jekyll-paginate
   - jemoji
 
+include: [".htaccess", "LICENSE.txt", "*.woff", "*.ttf", "*.json"]
+exclude: ["_site", lib", "config.rb", "Capfile", "config", "Gemfile", "Gemfile.lock", "README.md", "LICENSE", "log", "Rakefile", "Rakefile.rb", "tmp", "less", "*.sublime-project", "*.sublime-workspace", "test", "spec", "Gruntfile.js", "package.json", "node_modules", "vendor", "shell", ".keep", "note.xml", "templates", "private"]
 
 # Markdown settings
 markdown: kramdown
