@@ -88,6 +88,7 @@ anchorjs: true  # if you want to customize anchor. check out `anchor.html`
 plugins:
   - jekyll-paginate
   - jemoji
+  - jekyll-seo-tag
 
 include: [".htaccess", "LICENSE.txt", "*.woff", "*.ttf", "*.json"]
 exclude: ["_site", lib", "config.rb", "Capfile", "config", "Gemfile", "Gemfile.lock", "README.md", "LICENSE", "log", "Rakefile", "Rakefile.rb", "tmp", "less", "*.sublime-project", "*.sublime-workspace", "test", "spec", "Gruntfile.js", "package.json", "node_modules", "vendor", "shell", ".keep", "note.xml", "templates", "private"]
