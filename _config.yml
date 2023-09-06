@@ -4,7 +4,7 @@ SEOTitle: Giftable
 description: Jekyll version of the blog theme Gungnir.
 keyword: "jekyll, theme, blog, blog theme"
 url: "https://giftable.blog"      # your host, for absolute URL
-baseurl: "https://giftable.blog"                                         # for example, '/blog' if your blog hosted on 'host/blog'
+baseurl: ""                                         # for example, '/blog' if your blog hosted on 'host/blog'
 avatar: "img/Logo-giftable.jpg"                    # the avatar showing on the homepage
 allow_search_engine: false
 
