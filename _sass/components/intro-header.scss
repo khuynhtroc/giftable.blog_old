@@ -70,7 +70,7 @@
   }
   .post-heading {
     h1 {
-      font-size: 55px;
+      font-size: 35px;
       margin-bottom: 24px;
     }
     .subheading,
@@ -80,7 +80,7 @@
     }
     .subheading {
       @include sans-serif();
-      font-size: 30px;
+      font-size: 15px;
       line-height: 1.4;
       font-weight: normal;
       margin: 10px 0 30px;
@@ -89,7 +89,7 @@
     .meta {
       @include serif();
       font-weight: 300;
-      font-size: 20px;
+      font-size: 12px;
       a {
         color: white;
       }
