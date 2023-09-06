@@ -3,7 +3,7 @@ layout: post
 title: 35 Gifts for New Boyfriend That'll Make Him Surprise In 2023
 subtitle: Discover the Ultimate Collection of 2023 Gifts for New Boyfriends That Bring Unexpected Surprises. From Thoughtful to Trendy, These Gift Ideas Will Surely Delight Your Boyfriend. Explore Now and Find the Perfect Gift to Make Him Smile!
 header-img: "img/post/20230601/gift-new-boyfriends.jpg"
-header-style: image
+header-style: text
 catalog: true
 tags:
   - Recipients
