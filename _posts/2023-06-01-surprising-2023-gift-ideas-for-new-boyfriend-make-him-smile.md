@@ -497,7 +497,7 @@ But wait, there's more! Our gift ideas aren't limited to conventional options; w
 </div>
 <!-- end container -->
 
-<div class="container py4" bis_skin_checked="1">
+<div>
 <div class="mb4 px3 d-opengraph-sm" bis_skin_checked="1"><h2>Bottom Line</h2>
 <p>Remember, the key is to make it personal, show that you've put thought into it, and consider what will make him happy. Now, let's dive into the world of gift-giving and make this celebration a truly memorable one!  Let's make special occasion unforgettable together!</p></div>
 </div>
