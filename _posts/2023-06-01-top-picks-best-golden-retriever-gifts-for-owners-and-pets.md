@@ -25,14 +25,14 @@ The Sign comes with a set of interchangeable pieces, each representing different
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://loveable.us/products/10-reasons-why-i-love-you-custom-your-own-unique-reasons-3d-led-light-best-gift-for-family-couple-birthday-303ihpnpll314?variant=44336837132520?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Seasonal-Interchangeable-Welcome-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Seasonal-Interchangeable-Welcome-decoration-lovers/dp/B0BJ6TLJP2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Seasonal-Interchangeable-Welcome-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       **Pros**<br>
-        ✔️ Charming and versatile decoration<br>
-        ✔️ Thoughtful and handmade gift<br>
-        ✔️ Interchangeable pieces for every season<br>
-        ✔️ Easy to integrate into existing decoration<br>
+      ✔️ Charming and versatile decoration<br>
+      ✔️ Thoughtful and handmade gift<br>
+      ✔️ Interchangeable pieces for every season<br>
+      ✔️ Easy to integrate into existing decoration<br>
       <p class="text-center"><a href="https://www.amazon.com/Seasonal-Interchangeable-Welcome-decoration-lovers/dp/B0BJ6TLJP2/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
@@ -45,157 +45,157 @@ The vibrant colors and lifelike portrayal of the Golden Retriever make it an eye
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://loveable.us/products/10-reasons-why-i-love-you-custom-your-own-unique-reasons-3d-led-light-best-gift-for-family-couple-birthday-303ihpnpll314?variant=44336837132520?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Watercolor-Dog-Blanket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Watercolor-Dog-Blanket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       **Pros**<br>
-      ✔️ Artistic and heartwarming design<br><br>
-      ✔️ Handmade with love and care<br><br>
-      ✔️ Premium quality and comfort<br><br>
-      ✔️ Suitable for all ages<br><br>
-      <p class="text-center"><a href="ttps://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Artistic and heartwarming design<br>
+      ✔️ Handmade with love and care<br>
+      ✔️ Premium quality and comfort<br>
+      ✔️ Suitable for all ages<br>
+      <p class="text-center"><a href="https://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [3. Pet Lover Pajama Pants](https://www.amazon.com/Golden-Retriever-Pajama-Pants-Comfort/dp/B08FXYKYNL/?ie=UTF8&tag=avadalove-20)
 
-[](https://www.amazon.com/Golden-Retriever-Pajama-Pants-Comfort/dp/B08FXYKYNL/?ie=UTF8&tag=avadalove-20)
-
 Searching for a delightful and thoughtful anniversary gift for the pet lover in your life? Look no further than these charming Pet Lover Pajama Pants!
 
 Made from high-quality materials, they offer a soft and cozy feel against the skin, providing an ultimate lounging experience. With a waist that stretches up to 50 inches, these Pet Lover Pajama Pants are available in a range of sizes to suit everyone's preference.
 
-**Pros**
-
-✔️ Adorable and charming design
-
-✔️ Handmade with attention to detail
-
-✔️ Comfortable and cozy to wear
-
-✔️ Versatile for lounging or sleeping
-
-[Buy from Amazon](https://www.amazon.com/Golden-Retriever-Pajama-Pants-Comfort/dp/B08FXYKYNL/?ie=UTF8&tag=avadalove-20)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Golden-Retriever-Pajama-Pants-Comfort/dp/B08FXYKYNL/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Pet-Lover-Pajama-Pants.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Adorable and charming design<br><br>
+      ✔️ Handmade with attention to detail<br><br>
+      ✔️ Comfortable and cozy to wear<br><br>
+      ✔️ Versatile for lounging or sleeping<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Golden-Retriever-Pajama-Pants-Comfort/dp/B08FXYKYNL/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [4. Dog Breed Umbrella](https://www.uncommongoods.com/product/choose-your-dog-breed-umbrella)
-
-[](https://www.uncommongoods.com/product/choose-your-dog-breed-umbrella)
 
 The Dog Breed Umbrella features a heartwarming and personalized touch – customers can choose their favorite dog breed to be beautifully illustrated on the umbrella.
 
 The umbrella measures 33 inches in length and 40 inches in diameter when open, offering ample coverage during rainy strolls or sunny walks with their furry friend. Every time they use this Dog Breed Umbrella, they will be reminded of the love and joy their dog brings into their life.
 
-**Pros**
-
-✔️ Personalized tribute to their dog
-
-✔️ Handmade with love and care
-
-✔️ High-quality and durable materials
-
-✔️ Perfect for rainy or sunny days
-
-[Buy from Uncommon Goods](https://www.uncommongoods.com/product/choose-your-dog-breed-umbrella)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.uncommongoods.com/product/choose-your-dog-breed-umbrella" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Dog-Breed-Umbrella.webp" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Personalized tribute to their dog<br><br>
+      ✔️ Handmade with love and care<br><br>
+      ✔️ High-quality and durable materials<br><br>
+      ✔️ Perfect for rainy or sunny days<br><br>
+      <p class="text-center"><a href="https://www.uncommongoods.com/product/choose-your-dog-breed-umbrella" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [5. Cavertin Women’s Socks Pug](https://www.amazon.com/Cavertin-Dachshund-Flamingo-Retriever-Elephant/dp/B098W7J1WH/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Cavertin-Dachshund-Flamingo-Retriever-Elephant/dp/B098W7J1WH/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
 
 Calling all dog lovers and sock enthusiasts! The Cavertin Women's Socks in the adorable Pug design are an absolute must-have for anyone who wants to add a touch of cuteness and joy to their daily life.
 
 The vibrant colors and attention to detail make these socks a true fashion statement that will bring a smile to your face every time you wear them. Made from high-quality materials, these socks offer superior comfort and durability, ensuring they will become your go-to choice for all-day wear.
 
-**Pros**
-
-✔️ Adorable and heartwarming design
-
-✔️ High-quality and comfortable materials
-
-✔️ Fits perfectly and stays in place
-
-✔️ Great gift for dog lovers
-
-[Buy from Amazon](https://www.amazon.com/Cavertin-Dachshund-Flamingo-Retriever-Elephant/dp/B098W7J1WH/?th=1&psc=1?ie=UTF8&tag=avadalove-20)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Cavertin-Dachshund-Flamingo-Retriever-Elephant/dp/B098W7J1WH/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cavertin-Womens-Socks-Pug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Adorable and heartwarming design<br><br>
+      ✔️ High-quality and comfortable materials<br><br>
+      ✔️ Fits perfectly and stays in place<br><br>
+      ✔️ Great gift for dog lovers<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Cavertin-Dachshund-Flamingo-Retriever-Elephant/dp/B098W7J1WH/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [6. Hand-painted Keepsake Box](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-keepsake/dp/B0007UX0V4?th=1?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-keepsake/dp/B0007UX0V4?th=1?ie=UTF8&tag=avadalove-20)
 
 The Hand-painted Keepsake Box from Willow Tree is a treasure that will capture the emotions and memories of life's most precious moments.
 
 Its elegant and timeless design features a delicate tree motif, symbolizing growth, love, and the interconnectedness of life's experiences. Measuring 3 x 2 x 2.5 inches, this keepsake box is just the right size to hold small trinkets, jewelry, or notes that carry sentimental value.
 
-**Pros**
-
-✔️ Thoughtful, emotional gift
-
-✔️ Exquisite hand-painted craftsmanship
-
-✔️ Perfect for preserving cherished memories
-
-✔️ Versatile for all occasions
-
-[Buy from Amazon](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-keepsake/dp/B0007UX0V4?th=1?ie=UTF8&tag=avadalove-20)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Willow-Tree-sculpted-hand-painted-keepsake/dp/B0007UX0V4" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Hand-painted-Keepsake-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Thoughtful, emotional gift<br><br>
+      ✔️ Exquisite hand-painted craftsmanship<br><br>
+      ✔️ Perfect for preserving cherished memories<br><br>
+      ✔️ Versatile for all occasions<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Willow-Tree-sculpted-hand-painted-keepsake/dp/B0007UX0V4" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [7. Sculpted Willow Tree Figurine](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B06ZY8ZBB7?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B06ZY8ZBB7?ie=UTF8&tag=avadalove-20)
 
 Discover the epitome of heartfelt expression and emotional resonance with the Sculpted Willow Tree figurine.
 
 The artistry behind this figurine is truly awe-inspiring, capturing the depth of emotions in the subtlest of gestures. This exquisite hand-painted figure captures the essence of love, connection, and the beauty of relationships.
 
-**Pros**
-
-✔️ Emotional and heartfelt gift
-
-✔️ Exquisitely hand-painted craftsmanship
-
-✔️ Timeless and versatile design
-
-✔️ Ready to display on everywhere
-
-[Buy from Amazon](https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B06ZY8ZBB7?ie=UTF8&tag=avadalove-20)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B06ZY8ZBB7" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Sculpted-Willow-Tree-Figurine.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Emotional and heartfelt gift<br><br>
+      ✔️ Exquisitely hand-painted craftsmanship<br><br> 
+      ✔️ Timeless and versatile design<br><br>
+      ✔️ Ready to display on everywhere<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B06ZY8ZBB7" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [8. Golden Retriever Art Print](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/655275401/golden-retriever-fine-art-print-ethan)
-
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/655275401/golden-retriever-fine-art-print-ethan)
 
 Delight in the heartwarming beauty of the Golden Retriever Art Print - a masterpiece that captures the essence of these beloved companions in a way that touches the soul.
 
 Measuring 8 x 10 inches, this art print is a standard size, making it easy to frame and display in any home or office setting. Its museum-quality archival paper ensures the print's longevity, preserving the beauty and vibrancy for generations to admire.
 
-**Pros**
-
-✔️ Heartwarming, emotional artwork
-
-✔️ High-quality, exquisite print
-
-✔️ Perfect for dog lovers of all ages
-
-✔️ Versatile gift for all occasions
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/655275401/golden-retriever-fine-art-print-ethan)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/655275401/golden-retriever-fine-art-print-ethan" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Golden-Retriever-Art-Print.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Heartwarming, emotional artwork<br><br>
+      ✔️ High-quality, exquisite print<br><br>
+      ✔️ Perfect for dog lovers of all ages<br><br>
+      ✔️ Versatile gift for all occasions<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/655275401/golden-retriever-fine-art-print-ethan" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [9. Wooden Box Sign](https://www.amazon.com/Primitives-Kathy-Wooden-Golden-Retriever/dp/B00NE2QARI/?ie=UTF8&tag=avadalove-20)
-
-[](https://www.amazon.com/Primitives-Kathy-Wooden-Golden-Retriever/dp/B00NE2QARI/?ie=UTF8&tag=avadalove-20)
 
 Are you a Golden Retriever lover? Look no further! The Primitives by Kathy Wooden Box Sign featuring an adorable Golden Retriever is an absolute must-have for dog enthusiasts.
 
 The sign showcases a lifelike depiction of a Golden Retriever, radiating love and playfulness through its eyes and smile. Crafted with attention to detail, this wooden box sign brings warmth and character to any space, instantly creating a cozy and inviting atmosphere.
 
-**Pros**
-
-✔️ Lifelike portrayal of a Golden Retriever
-
-✔️ Heartwarming, charming design
-
-✔️ Adds warmth, character to your decoration
-
-✔️ Versatile size for various display options
-
-[Buy from Amazon](https://www.amazon.com/Primitives-Kathy-Wooden-Golden-Retriever/dp/B00NE2QARI/?ie=UTF8&tag=avadalove-20)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Primitives-Kathy-Wooden-Golden-Retriever/dp/B00NE2QARI/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wooden-Box-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Lifelike portrayal of a Golden Retriever<br><br>
+      ✔️ Heartwarming, charming design<br><br>
+      ✔️ Adds warmth, character to your decoration<br><br>
+      ✔️ Versatile size for various display options<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Primitives-Kathy-Wooden-Golden-Retriever/dp/B00NE2QARI/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [10. Anatomy Of A Golden Retriever Bag](https://www.amazon.com/G2TUP-Golden-Retriever-Anatomy-Cosmetics/dp/B09PF2164Y/?th=1?ie=UTF8&tag=avadalove-20)
 
