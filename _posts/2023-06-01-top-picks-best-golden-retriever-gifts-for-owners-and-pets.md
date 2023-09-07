@@ -19,23 +19,9 @@ But why settle for ordinary when you can give your golden retriever an extraordi
 
 ### [1. Seasonal Interchangeable Welcome Sign](https://www.amazon.com/Seasonal-Interchangeable-Welcome-decoration-lovers/dp/B0BJ6TLJP2/?ie=UTF8&tag=avadalove-20)
 
-[](https://www.amazon.com/Seasonal-Interchangeable-Welcome-decoration-lovers/dp/B0BJ6TLJP2/?ie=UTF8&tag=avadalove-20)
-
 The Seasonal Interchangeable Welcome Sign is an exquisite decoration piece that will add a touch of warmth and charm to any home.
 
 The Sign comes with a set of interchangeable pieces, each representing different seasons and holidays throughout the year. This means your loved ones can enjoy a fresh and festive look for every occasion.
-
-**Pros**
-
-✔️ Charming and versatile decoration
-
-✔️ Thoughtful and handmade gift
-
-✔️ Interchangeable pieces for every season
-
-✔️ Easy to integrate into existing decoration
-
-[Buy from Amazon](https://www.amazon.com/Seasonal-Interchangeable-Welcome-decoration-lovers/dp/B0BJ6TLJP2/?ie=UTF8&tag=avadalove-20)
 
 <div class="f-grid">
     <div class="f-grid-col">
@@ -53,23 +39,23 @@ The Sign comes with a set of interchangeable pieces, each representing different
 
 ### [2. Watercolor Dog Blanket](https://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/?th=1?ie=UTF8&tag=avadalove-20)
 
-[](https://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/?th=1?ie=UTF8&tag=avadalove-20)
-
 Give the gift of warmth, love, and artistry with the Watercolor Dog Blanket, and celebrate your anniversary in the most heartfelt and memorable way possible!
 
 The vibrant colors and lifelike portrayal of the Golden Retriever make it an eye-catching centerpiece. Its large dimensions of 80 x 60 inches ensure that it can be enjoyed by both adults and children alike, creating lasting memories of love and companionship.
 
-**Pros**
-
-✔️ Artistic and heartwarming design
-
-✔️ Handmade with love and care
-
-✔️ Premium quality and comfort
-
-✔️ Suitable for all ages
-
-[Buy from Amazon](https://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/?th=1?ie=UTF8&tag=avadalove-20)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://loveable.us/products/10-reasons-why-i-love-you-custom-your-own-unique-reasons-3d-led-light-best-gift-for-family-couple-birthday-303ihpnpll314?variant=44336837132520?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Watercolor-Dog-Blanket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+      ✔️ Artistic and heartwarming design<br><br>
+      ✔️ Handmade with love and care<br><br>
+      ✔️ Premium quality and comfort<br><br>
+      ✔️ Suitable for all ages<br><br>
+      <p class="text-center"><a href="ttps://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [3. Pet Lover Pajama Pants](https://www.amazon.com/Golden-Retriever-Pajama-Pants-Comfort/dp/B08FXYKYNL/?ie=UTF8&tag=avadalove-20)
 
