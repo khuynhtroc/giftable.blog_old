@@ -481,221 +481,222 @@ Crafted from stainless steel, this pocket-sized token serves as a constant remin
 
 ### [24\. Bluetooth Speaker Cell Phone Stand](https://www.amazon.com/Wireless-Bluetooth-Anti-Slip-Surround-Compatible/dp/B08GC1G4Y9/)
 
-[](https://www.amazon.com/Wireless-Bluetooth-Anti-Slip-Surround-Compatible/dp/B08GC1G4Y9/)
-
 The Bluetooth Speaker Cell Phone Stand is a fantastic gift for your new boyfriend, offering the perfect blend of entertainment and practicality.
 
 Its built-in speaker delivers high-quality sound, allowing him to enjoy music, podcasts, and movies without the need for additional speakers or headphones. Plus, with the wireless Bluetooth connectivity, he can easily pair his smartphone and enjoy a clutter-free experience.
 
-**Pros**
-
-✔️ Multifunctional device for convenience
-
-✔️ High-quality sound with wireless capability
-
-✔️ Stylish design with anti-slip features
-
-✔️ Perfect gift for tech-savvy individuals
-
-[Buy from Amazon](https://www.amazon.com/Wireless-Bluetooth-Anti-Slip-Surround-Compatible/dp/B08GC1G4Y9/)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Wireless-Bluetooth-Anti-Slip-Surround-Compatible/dp/B08GC1G4Y9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Bluetooth-Speaker-Cell-Phone-Stand.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Multifunctional device for convenience<br><br>
+        ✔️ High-quality sound with wireless capability<br><br>
+        ✔️ Stylish design with anti-slip features<br><br>
+        ✔️ Perfect gift for tech-savvy individuals<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Wireless-Bluetooth-Anti-Slip-Surround-Compatible/dp/B08GC1G4Y9/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [25\. Controller Stand Headphone Holder](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297147140/personalized-controller-stand-headphone)
-
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297147140/personalized-controller-stand-headphone)
 
 The Controller Stand Headphone Holder is the perfect gift for your new boyfriend, offering a unique blend of organization and personalization.
 
 The Controller Stand Headphone Holder becomes even more special when it's personalized with his name or initials. It's a heartwarming way to make his gaming or work area truly his own.
 
-**Pros**
-
-✔️ Personalized with his name or initials
-
-✔️ Keeps controllers and headphones organized
-
-✔️ Stylish and sleek design
-
-✔️ Perfect gift for gamers and music lovers
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297147140/personalized-controller-stand-headphone)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297147140/personalized-controller-stand-headphone" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Controller-Stand-Headphone-Holder.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+✔️ Personalized with his name or initials<br><br>
+✔️ Keeps controllers and headphones organized<br><br>
+✔️ Stylish and sleek design<br><br>
+✔️ Perfect gift for gamers and music lovers<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297147140/personalized-controller-stand-headphone" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [26\. Memory Film Keychain](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/memory-film-keychain-1-10-photos)
-
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/memory-film-keychain-1-10-photos)
 
 Surprise your new boyfriend with the Memory Film Keychain, and witness the emotional impact as he discovers this thoughtful and personalized gift.
 
 This personalized keychain allows you to preserve your most cherished memories together by showcasing up to 10 photos in a tiny film strip. Despite its small size, this Memory Film Keychain holds immense sentimental value. It can be easily carried wherever he goes.
 
-**Pros**
-
-✔️ Personalized with up to 10 photos
-
-✔️ Compact and portable design
-
-✔️ Durable and long-lasting material
-
-✔️ Perfect gift for sentimental occasions
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/memory-film-keychain-1-10-photos)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/memory-film-keychain-1-10-photos" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Memory-Film-Keychain.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Personalized with up to 10 photos<br><br>
+        ✔️ Compact and portable design<br><br>
+        ✔️ Durable and long-lasting material<br><br>
+        ✔️ Perfect gift for sentimental occasions<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/memory-film-keychain-1-10-photos" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [27\. Custom Groomsmen Wallet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1152087643/personalized-walletmens-walletengraved)
-
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1152087643/personalized-walletmens-walletengraved)
 
 Surprise your new boyfriend with the Custom Groomsmen Wallet, and watch as he is touched by this thoughtful and personalized gift.
 
 The genuine leather gives it a sophisticated and timeless look, while the customized engraving adds a personal touch. Measuring approximately 4.5 inches by 3.7 inches, this wallet is compact and convenient for everyday use.
 
-**Pros**
-
-✔️ Personalized with his name or initials
-
-✔️ High-quality genuine leather material
-
-✔️ Compact and slim design for convenience
-
-✔️ Multiple card slots and bill compartment
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1152087643/personalized-walletmens-walletengraved)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1152087643/personalized-walletmens-walletengraved" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Groomsmen-Wallet-1.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Personalized with his name or initials<br><br>
+        ✔️ High-quality genuine leather material<br><br>
+        ✔️ Compact and slim design for convenience<br><br>
+        ✔️ Multiple card slots and bill compartment<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1152087643/personalized-walletmens-walletengraved" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [28\. Message Date Ideas Capsules](https://www.amazon.com/Date-Ideas-Capsules-Bottle-50pcs/dp/B09SKNPD3B/)
-
-[](https://www.amazon.com/Date-Ideas-Capsules-Bottle-50pcs/dp/B09SKNPD3B/)
 
 The Message Date Ideas Capsules are a delightful and creative way to add excitement and spontaneity to your relationship with your new boyfriend. This set of 50 capsules contains a wide variety of unique and fun date ideas.
 
 With the MESSAGE Date Ideas Capsules, every date night becomes an exciting surprise. Simply pick a capsule at random, and inside, you'll find a secret date idea waiting to be revealed.
 
-**Pros**
-
-✔️ Fifty unique and creative date ideas
-
-✔️ Adds excitement and spontaneity
-
-✔️ Suitable for all types of dates
-
-✔️ Compact and portable for easy use and storage
-
-[Buy from Amazon](https://www.amazon.com/Date-Ideas-Capsules-Bottle-50pcs/dp/B09SKNPD3B/)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Date-Ideas-Capsules-Bottle-50pcs/dp/B09SKNPD3B/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/MESSAGE-Date-Ideas-Capsules.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Fifty unique and creative date ideas<br><br>
+        ✔️ Adds excitement and spontaneity<br><br>
+        ✔️ Suitable for all types of dates<br><br>
+        ✔️ Compact and portable for easy use and storage<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Date-Ideas-Capsules-Bottle-50pcs/dp/B09SKNPD3B/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [29\. Coordinates Infinity Bracelet](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1160234453/coordinates-infinity-bracelet-christmas)
-
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1160234453/coordinates-infinity-bracelet-christmas)
 
 The Coordinates Infinity Bracelet is a beautiful and sentimental gift that will capture your new boyfriend's heart.
 
 With the Coordinates Infinity Bracelet, you can add a personal touch by customizing it with the coordinates of a significant location that holds meaning for both of you. It could be where you first met, your favorite spot, or a place that signifies a memorable moment in your relationship.
 
-**Pros**
-
-✔️ Personalized with custom coordinates
-
-✔️ Symbol of eternal love and connection
-
-✔️ High-quality materials for durability
-
-✔️ Adjustable to fit different wrist sizes
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1160234453/coordinates-infinity-bracelet-christmas)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1160234453/coordinates-infinity-bracelet-christmas" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Coordinates-Infinity-Bracelet.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Personalized with custom coordinates<br><br>
+        ✔️ Symbol of eternal love and connection<br><br>
+        ✔️ High-quality materials for durability<br><br>
+        ✔️ Adjustable to fit different wrist sizes<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1160234453/coordinates-infinity-bracelet-christmas" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [30\. Rustic Picture Frame](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/)
-
-[](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/)
 
 The Rustic Picture Frame is the perfect gift to capture and preserve your most cherished memories with your new boyfriend. This beautifully designed frame adds a touch of rustic charm to any space.
 
 The frame features the heartfelt message "Engagement & Wedding - Our Adventure Begins," making it an ideal gift for couples celebrating their journey together. Crafted with high-quality wood, this frame exudes a timeless appeal and durability that will keep your memories safe for years to come.
 
-**Pros**
-
-✔️ Charming and rustic design
-
-✔️ Heartfelt message for engagement and wedding
-
-✔️ High-quality wood construction
-
-✔️ Suitable for various photo sizes
-
-[Buy from Amazon](https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Rustic-Picture-Frame.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Charming and rustic design<br><br>
+        ✔️ Heartfelt message for engagement and wedding<br><br>
+        ✔️ High-quality wood construction<br><br>
+        ✔️ Suitable for various photo sizes<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [31\. What I Love About You Book](https://www.amazon.com/Knock-What-Love-About-Journal/dp/1601064934/)
-
-[](https://www.amazon.com/Knock-What-Love-About-Journal/dp/1601064934/)
 
 The What I Love About You Book is a truly touching and heartfelt gift that will melt your new boyfriend's heart. This beautifully designed journal allows you to express your love and appreciation for him in a unique and personalized way.
 
 With the What I Love About You Book, you can fill in the prompts and spaces with your own thoughts and feelings, creating a one-of-a-kind keepsake that reflects the special bond you share.
 
-**Pros**
-
-✔️ Personalized and heartfelt gift
-
-✔️ Thoughtful prompts for easy writing
-
-✔️ Beautifully designed and well-crafted
-
-✔️ Compact and portable for easy carrying
-
-[Buy from Amazon](https://www.amazon.com/Knock-What-Love-About-Journal/dp/1601064934/)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Knock-What-Love-About-Journal/dp/1601064934/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/What-I-Love-About-You-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Personalized and heartfelt gift<br><br>
+        ✔️ Thoughtful prompts for easy writing<br><br>
+        ✔️ Beautifully designed and well-crafted<br><br>
+        ✔️ Compact and portable for easy carrying<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Knock-What-Love-About-Journal/dp/1601064934/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [32\. Date Night Dice](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th)
-
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th)
 
 The Date Night Dice - After Dark Edition is the perfect way to add some excitement and spontaneity to your evenings with your new boyfriend.
 
 Each dice features different actions and body parts, making every roll a surprise and keeping the fun going all night long. Whether you're looking to add some spice to your relationship or simply want to try something new and adventurous, these dice will ignite the spark and create unforgettable memories.
 
-**Pros**
-
-✔️ Playful way to spice up date nights
-
-✔️ Offers a variety of exciting actions
-
-✔️ Portable for easy use anywhere
-
-✔️ Perfect for couples looking to explore and bond
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Date-Night-Dice.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Playful way to spice up date nights<br><br>
+        ✔️ Offers a variety of exciting actions<br><br>
+        ✔️ Portable for easy use anywhere<br><br>
+        ✔️ Perfect for couples looking to explore and bond<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [33\. To My Man Keychain](https://www.amazon.com/Boyfriend-Anniversary-Valentines-Keychains-Girlfriend/dp/B0CB7FJDD8/)
-
-[](https://www.amazon.com/Boyfriend-Anniversary-Valentines-Keychains-Girlfriend/dp/B0CB7FJDD8/)
 
 The To My Man Keychain is a heartfelt and thoughtful gift that will show your new boyfriend how much he means to you.
 
 With the To My Man Keychain, you can express your feelings with the engraved message "To my man, I loved you then, I love you still, always have, always will." This sentimental message will touch his heart and serve as a sweet token of your affection.
 
-**Pros**
-
-✔️ Sentimental and meaningful message
-
-✔️ High-quality stainless steel construction
-
-✔️ Durable and long-lasting
-
-✔️ Compact and portable for easy carrying
-
-[Buy from Amazon](https://www.amazon.com/Boyfriend-Anniversary-Valentines-Keychains-Girlfriend/dp/B0CB7FJDD8/)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/Boyfriend-Anniversary-Valentines-Keychains-Girlfriend/dp/B0CB7FJDD8/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/To-My-Man-Keychain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Sentimental and meaningful message<br><br>
+        ✔️ High-quality stainless steel construction<br><br>
+        ✔️ Durable and long-lasting<br><br>
+        ✔️ Compact and portable for easy carrying<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Boyfriend-Anniversary-Valentines-Keychains-Girlfriend/dp/B0CB7FJDD8/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### [34\. Cuban Link Chain Necklace](https://www.amazon.com/DuoDiner-Necklace-Stainless-Valentines-Boyfriend/dp/B0BG6T53G9/)
-
-[](https://www.amazon.com/DuoDiner-Necklace-Stainless-Valentines-Boyfriend/dp/B0BG6T53G9/)
 
 The Cuban Link Chain Necklace is a perfect gift to add a touch of style and sentiment to your new boyfriend's look.
 
 The necklace measures approximately 20 inches in length, providing the perfect fit for most neck sizes. Its secure lobster clasp ensures that it stays in place, giving him the confidence to wear it every day.
 
-**Pros**
-
-✔️ Stylish and masculine design
-
-✔️ Made from high-quality stainless steel
-
-✔️ Classic and timeless accessory
-
-[Buy from Amazon](https://www.amazon.com/DuoDiner-Necklace-Stainless-Valentines-Boyfriend/dp/B0BG6T53G9/)
+<div class="f-grid">
+    <div class="f-grid-col">
+      <a href="https://www.amazon.com/DuoDiner-Necklace-Stainless-Valentines-Boyfriend/dp/B0BG6T53G9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cuban-Link-Chain-Necklace.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+    </div>
+    <div class="f-grid-col">
+      **Pros**<br>
+        ✔️ Stylish and masculine design<br><br>
+        ✔️ Made from high-quality stainless steel<br><br>
+        ✔️ Classic and timeless accessory<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/DuoDiner-Necklace-Stainless-Valentines-Boyfriend/dp/B0BG6T53G9/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+    </div>
+</div>
 
 ### Bottom Line
 -----------
