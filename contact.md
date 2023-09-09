@@ -1,8 +1,7 @@
 ---
 layout: page
 title: Contact
-permalink: /contact
-comments: false
+permalink: /contact/
 ---
 
 <form action="https://formspree.io/{{site.email}}" method="POST">    
