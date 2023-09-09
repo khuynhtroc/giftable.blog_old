@@ -66,7 +66,6 @@ sns:
 # Build settings
 # from 2016, 'pygments' is unsupported on GitHub Pages. Use 'rouge' for highlighting instead.
 # highlighter: rouge
-permalink: "/:categories/:title/"
 paginate: 1000
 exclude:
   - package.json
