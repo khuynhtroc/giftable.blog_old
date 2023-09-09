@@ -4,7 +4,7 @@ title: Bring Laughter to Every Sip Funny Coffee Mugs Collection
 subtitle: Explore a Collection of Hilarious Coffee Mugs Designed to Infuse Every Sip with Laughter. Our Assortment of Funny Coffee Mugs Guarantees a Playful Start to Your Day. Discover the Perfect Gift to Add a Touch of Humor to Your Coffee Routine and Brighten Up Your Mornings.
 header-img: "img/post/20230601/funny-coffee-mugs-fix.jpg"
 header-style: text
-permalink: "/unny-coffee-mugs/"
+permalink: "/funny-coffee-mugs/"
 catalog: true
 tags:
   - Interests
