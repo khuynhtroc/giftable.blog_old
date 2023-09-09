@@ -1,7 +1,7 @@
 ---
 layout: page
 title: About Giftable
-permalink: /about
+permalink: /about/
 comments: false
 header-img: "img/post/20230601/gift-for-new-drivers.jpg"
 header-style: text
