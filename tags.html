@@ -23,12 +23,12 @@ permalink: /tags
 
 				{% capture tags %}
 				{% for tag in site.tags %}
-				<a data-sort="{{ site.posts.size | minus: tag[1].size | prepend: '0000' | slice: -4, 4 }}"
-					data-encode="{{ tag[0] | strip | url_encode }}"
+				<a data-sort="{{ site.posts.size | minus: tag[Recipients].size | prepend: '0000' | slice: -4, 4 }}"
+					data-encode="{{ tag[Recipients] | strip | url_encode }}"
 					class="tag-button"
-					title="{{ tag[0] }}" rel="{{ tag[1].size }}">
-					{{ tag[0] }}
-					<sup>{{tag[1].size}}</sup>
+					title="{{ tag[Recipients] }}" rel="{{ tag[Recipients].size }}">
+					{{ tag[Recipients] }}
+					<sup>{{tag[Recipients].size}}</sup>
 				</a>__SEPERATOR__
 				{% endfor %}
 				{% endcapture %}
