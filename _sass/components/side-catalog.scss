@@ -10,7 +10,7 @@
   }
   &.fold {
     .catalog-toggle::before {
-      content: "+";
+      content: "";
     }
     .catalog-body {
       display: none;
@@ -19,7 +19,7 @@
   .catalog-toggle {
     color: var(--body-gray) !important;
     &::before {
-      content: "-";
+      content: "";
       position: relative;
       margin-right: 5px;
       bottom: 1px;
