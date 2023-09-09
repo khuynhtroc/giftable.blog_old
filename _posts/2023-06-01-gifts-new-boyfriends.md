@@ -29,7 +29,7 @@ With its captivating 3D effect, the light beautifully showcases your personalize
       <a href="https://loveable.us/products/10-reasons-why-i-love-you-custom-your-own-unique-reasons-3d-led-light-best-gift-for-family-couple-birthday-303ihpnpll314" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Unique-Reasons-3D-LED-Light.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized and heartfelt gift<br><br>      
         ✔️ Stunning 3D visual effect<br><br>     
         ✔️ Compact size, perfect for any space<br><br>
@@ -49,7 +49,7 @@ The natural wooden texture adds a touch of rustic charm, making it a beautiful a
       <a href="https://loveable.us/products/where-we-met-map-wooden-map-personalized-engagement-print-location-wall-art-custom-shape-wooden-plaque-engagement-gift-valentines-gift-engaged-married-map-212ihpnpwp586?variant=44193757593832?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Where-We-Met-Map-Wooden-Map.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with your unique love story<br><br>
         ✔️ Rustic, charming wooden design<br><br>
         ✔️ Durable, high-quality craftsmanship<br><br>
@@ -69,7 +69,7 @@ The all-over print showcases a sweet message that says, "I always want to be by 
       <a href="https://loveable.us/products/i-always-to-be-by-your-side-personalized-all-over-print-pillow-best-funny-dirty-gifts-for-couple-on-valentine-anniversaries-210ihpnppi420?variant=43989350678760?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Personalized-All-Over-Print-Pillow.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Customizable with your names<br><br>
         ✔️ Adorable and heartfelt design<br><br>
         ✔️ Durable and vibrant printing<br><br>
@@ -89,7 +89,7 @@ The design features intricately detailed skulls, representing a powerful and eve
       <a href="https://loveable.us/products/couple-hoodies-king-queen-skull-couple-matching-hoodies-customized-hoodies-for-teen-couples-hoodies-valentines-day-gifts-304ihpnpts453?variant=44446343790824?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/King-Queen-Skull-Couple-Hoodies.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Customized with your names<br><br>
         ✔️ Unique and stylish design with detailed skulls<br><br>
         ✔️ Comfortable and warm blend of materials<br><br>
@@ -109,7 +109,7 @@ The heartfelt message, "My Soulmate My Everything," expresses the depth of your 
       <a href="https://loveable.us/products/my-soulmate-my-everything-custom-name-and-photo-personalized-steel-keychain-best-gifts-for-couple-208ihpthkc070?variant=43977440559336?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/My-Soulmate-My-Everything-Keychain.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with names and photo<br><br>
         ✔️ Heartfelt and emotional message<br><br>
         ✔️ Durable and long-lasting steel construction<br><br>
@@ -129,7 +129,7 @@ With its soft and cuddly design, this teddy bear serves as a constant reminder t
       <a href="https://loveable.us/products/im-here-if-you-need-a-hug-personalized-teddy-bear-best-gift-for-himher-lovely-gift-for-friendsbestiefriends-moving-away-for-daughterniece-306ihpnpbe150?variant=44553783771368?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Im-Here-If-You-Need-A-Hug-Teddy-Bear.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
 ✔️ Personalized with his name<br><br>
 ✔️ Soft and huggable, providing comfort and warmth<br><br>
 ✔️ Thoughtful and emotional message embroidered<br><br>
@@ -149,7 +149,7 @@ With the option to upload your favorite photo together, this plaque becomes a un
       <a href="https://loveable.us/products/forever-after-all-personalized-upload-photo-acrylic-plaque-best-gift-for-himher-for-husbandwife-anniversary-gift-best-hom-decor-305ihpnpap573?variant=44523148804328?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Personalized-Rectangle-Acrylic-Plaque.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with your cherished photo<br><br>
         ✔️ Emotional, heartwarming gift choice<br><br>
         ✔️ High-quality acrylic material for a modern look<br><br>
@@ -169,7 +169,7 @@ With its carefully curated set of thought-provoking questions and prompts, this 
       <a href="https://www.uncommongoods.com/product/love-talk-conversation-deck" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Love-Talk-Conversation-Deck.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Sparks intimate, meaningful conversations<br><br>
         ✔️ Encourages emotional understanding<br><br>
         ✔️ Thoughtfully curated set of 100 cards<br><br>
@@ -188,7 +188,7 @@ The blanket features a heartwarming and humorous message, "I promise to always b
       <a href="https://loveable.us/products/i-promise-to-always-by-your-side-or-under-you-or-on-top-of-you-fleece-blanket-best-funny-gifts-for-him-her-on-christmas-valentine-birthday-anniversaries-210ihpbnbl419?variant=43992587895016?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Fleece-Blanket.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Heartwarming and humorous message<br><br>
         ✔️ Soft and cozy fleece material<br><br>
         ✔️ Generous size for cuddling together<br><br>
@@ -208,7 +208,7 @@ Each card features a unique and seductive suggestion, designed to ignite the spa
       <a href="https://www.amazon.com/Why-Dont-We-Relationships-Conversations/dp/B093BCC4VP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/150-Bedroom-Couples-Cards.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Ignites passion and intimacy<br><br>
         ✔️ Wide variety of seductive suggestions<br><br>
         ✔️ Builds trust and openness in the relationship<br><br>
@@ -228,7 +228,7 @@ The personalized engraving at the top adds a special touch, making this plaque u
       <a href="https://loveable.us/products/forever-and-always-acrylic-plaque-custom-10-photos-personalized-acrylic-plaque-gift-for-wife-husband-girlfriend-boyfriend-on-valentines-day-anniversary-birthday-209ihpthap125?variant=43825845436648?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Forever-And-Always-Acrylic-Plaque.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with ten cherished photos<br><br>
         ✔️ Thoughtful, sentimental gift choice<br><br>
         ✔️ High-quality acrylic material for lasting clarity<br><br>
@@ -250,7 +250,7 @@ Made from high-quality stainless steel, it ensures that his favorite beverages s
       <a href="https://www.amazon.com/Gifts-Him-Her-Anniversary-Girlfriend/dp/B0BDMQPYQM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Stainless-Steel-Tumbler.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
 ✔️ Keeps beverages hot or cold for hours<br><br>
 ✔️ Stylish and practical design<br><br>
 ✔️ Spill-proof lid for easy sipping<br><br>
@@ -270,7 +270,7 @@ You can express your love in 12 carefully crafted reasons, making it a heartfelt
       <a href="https://loveable.us/products/12-reasons-why-i-love-you-with-acrylic-wooden-photo-plaque-personalized-valentines-day-or-romantic-anniversary-gift-for-boyfriend-girlfriend-husbandwife-212ihnvswp965?variant=44190799692008?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/12-Reasons-Why-I-Love-You-Wooden-Photo.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with 12 heartfelt reasons<br><br>
         ✔️ High-quality wooden and acrylic materials<br><br>
         ✔️ Customizable design for a unique touch<br><br>
@@ -290,7 +290,7 @@ It's simple to use; just roll the dice and let destiny guide you to a new and ex
       <a href="https://www.amazon.com/FrereFeter-Boyfriend-Girlfriend-Anniversary-Valentines/dp/B0C7H3GM8K/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Date-Decision-Dice.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Enhances spontaneity and fun<br><br>
         ✔️ Easy to use and convenient<br><br>
         ✔️ Diverse date ideas for variety<br><br>
@@ -310,7 +310,7 @@ The card is compact and conveniently sized to fit in your wallet or purse. From 
       <a href="https://www.uncommongoods.com/product/date-night-activity-scratch-off-card" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Scratch-Off-Card.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Spark excitement and spontaneity<br><br>
         ✔️ Wide range of date activities<br><br>
         ✔️ Thoughtful and interactive gift<br><br>
@@ -330,7 +330,7 @@ The thoughtful formulation of this massage oil ensures it glides effortlessly, a
       <a href="https://www.amazon.com/Cosmetasa-Sore-Muscle-Massage-Roller/dp/B08LW662KP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cosmetasa-Massage-Oil.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Relieves sore muscles and tension<br><br>
         ✔️ Aromatherapy for relaxation and tranquility<br><br>
         ✔️ Lightweight and non-greasy formula<br><br>
@@ -350,7 +350,7 @@ With a long-lasting burning time, this scented candle ensures that your moments 
       <a href="https://www.amazon.com/Anniversary-Boyfriend-Thanksgiving-Christmas-Valentines/dp/B0B5R5TCXG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Scented-Candle.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Invokes a sense of romance<br><br>
         ✔️ Long-lasting burning time<br><br>
         ✔️ Premium-quality and safe materials<br><br>
@@ -370,7 +370,7 @@ The custom embroidery on this hoodie allows you to showcase a date that holds a 
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1284728729/custom-embroidered-roman-numeral-hoodie" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Embroidered-Roman-Numeral-Hoodie.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with a significant date<br><br>
         ✔️ High-quality material for comfort<br><br>
         ✔️ Stylish and versatile design<br><br>
@@ -390,7 +390,7 @@ The standout feature of this Face Money Brief Underwear is undoubtedly the custo
       <a href="https://loveable.us/products/boxer-brief-underwear-with-face-money-mens-boxer-best-gift-for-friends-funny-gifts-304ihpnpmb216?variant=44430696939752?utm_source=avada&ranking=&utm_source=&utm_campaign=gifts-for-new-boyfriend-thatll-make-him-surprise-in-2023" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Face-Money-Brief-Underwear.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Customized with his face<br><br>
         ✔️ Unique and funny design<br><br>
         ✔️ Comfortable and well-fitting<br><br>
@@ -410,7 +410,7 @@ The bracelets feature a charming combination of black lava stones and white howl
       <a href="https://www.amazon.com/Protection-Bracelets-Boyfriend-Girlfriend-Relationships/dp/B08HT26JWR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Luck-Protection-Couples-Bracelets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Symbolic and heartfelt design<br><br>
         ✔️ Durable and high-quality materials<br><br>
         ✔️ Adjustable and comfortable fit<br><br>
@@ -430,7 +430,7 @@ The Wish beads Intention Bracelets provide a powerful way for your new boyfriend
       <a href="https://www.uncommongoods.com/product/mens-wishbeads-intention-bracelets" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Men-Wishbeads-Intention-Bracelets.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Encourages goal setting and focus<br><br>
         ✔️ Stylish and versatile design<br><br>
         ✔️ Durable and high-quality materials<br><br>
@@ -450,7 +450,7 @@ The Fiancée Cat Matching Keychain is not only adorable but also deeply meaningf
       <a href="https://www.amazon.com/Valentines-Girlfriend-Boyfriend-Christmas-Anniversary/dp/B09LVH9VM7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Fiancee-Cat-Matching-Keychain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Adorable and meaningful design<br><br>
         ✔️ Durable and high-quality materials<br><br>
         ✔️ Perfect gift for couples<br><br>
@@ -470,7 +470,7 @@ Crafted from stainless steel, this pocket-sized token serves as a constant remin
       <a href="https://www.amazon.com/Inspirational-Relationship-Stainless-Boyfriend-Girlfriend/dp/B0BDGCGT83/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Pocket-Hug-Token.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Emotional and meaningful gift<br><br>
         ✔️ Durable stainless steel construction<br><br>
         ✔️ Fits perfectly in pocket or wallet<br><br>
@@ -490,7 +490,7 @@ Its built-in speaker delivers high-quality sound, allowing him to enjoy music, p
       <a href="https://www.amazon.com/Wireless-Bluetooth-Anti-Slip-Surround-Compatible/dp/B08GC1G4Y9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Bluetooth-Speaker-Cell-Phone-Stand.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Multifunctional device for convenience<br><br>
         ✔️ High-quality sound with wireless capability<br><br>
         ✔️ Stylish design with anti-slip features<br><br>
@@ -510,7 +510,7 @@ The Controller Stand Headphone Holder becomes even more special when it's person
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1297147140/personalized-controller-stand-headphone" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Controller-Stand-Headphone-Holder.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
 ✔️ Personalized with his name or initials<br><br>
 ✔️ Keeps controllers and headphones organized<br><br>
 ✔️ Stylish and sleek design<br><br>
@@ -530,7 +530,7 @@ This personalized keychain allows you to preserve your most cherished memories t
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/975117613/memory-film-keychain-1-10-photos" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Memory-Film-Keychain.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with up to 10 photos<br><br>
         ✔️ Compact and portable design<br><br>
         ✔️ Durable and long-lasting material<br><br>
@@ -550,7 +550,7 @@ The genuine leather gives it a sophisticated and timeless look, while the custom
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1152087643/personalized-walletmens-walletengraved" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Groomsmen-Wallet-1.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with his name or initials<br><br>
         ✔️ High-quality genuine leather material<br><br>
         ✔️ Compact and slim design for convenience<br><br>
@@ -570,7 +570,7 @@ With the MESSAGE Date Ideas Capsules, every date night becomes an exciting surpr
       <a href="https://www.amazon.com/Date-Ideas-Capsules-Bottle-50pcs/dp/B09SKNPD3B/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/MESSAGE-Date-Ideas-Capsules.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Fifty unique and creative date ideas<br><br>
         ✔️ Adds excitement and spontaneity<br><br>
         ✔️ Suitable for all types of dates<br><br>
@@ -590,7 +590,7 @@ With the Coordinates Infinity Bracelet, you can add a personal touch by customiz
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1160234453/coordinates-infinity-bracelet-christmas" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Coordinates-Infinity-Bracelet.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized with custom coordinates<br><br>
         ✔️ Symbol of eternal love and connection<br><br>
         ✔️ High-quality materials for durability<br><br>
@@ -610,7 +610,7 @@ The frame features the heartfelt message "Engagement & Wedding - Our Adventure B
       <a href="https://www.amazon.com/VILIGHT-Engagement-Wedding-Engaged-Couples/dp/B07XFCDWPM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Rustic-Picture-Frame.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Charming and rustic design<br><br>
         ✔️ Heartfelt message for engagement and wedding<br><br>
         ✔️ High-quality wood construction<br><br>
@@ -630,7 +630,7 @@ With the What I Love About You Book, you can fill in the prompts and spaces with
       <a href="https://www.amazon.com/Knock-What-Love-About-Journal/dp/1601064934/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/What-I-Love-About-You-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Personalized and heartfelt gift<br><br>
         ✔️ Thoughtful prompts for easy writing<br><br>
         ✔️ Beautifully designed and well-crafted<br><br>
@@ -650,7 +650,7 @@ Each dice features different actions and body parts, making every roll a surpris
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1470635595/date-night-dice-after-dark-edition-5th" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Date-Night-Dice.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Playful way to spice up date nights<br><br>
         ✔️ Offers a variety of exciting actions<br><br>
         ✔️ Portable for easy use anywhere<br><br>
@@ -670,7 +670,7 @@ With the To My Man Keychain, you can express your feelings with the engraved mes
       <a href="https://www.amazon.com/Boyfriend-Anniversary-Valentines-Keychains-Girlfriend/dp/B0CB7FJDD8/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/To-My-Man-Keychain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Sentimental and meaningful message<br><br>
         ✔️ High-quality stainless steel construction<br><br>
         ✔️ Durable and long-lasting<br><br>
@@ -690,7 +690,7 @@ The necklace measures approximately 20 inches in length, providing the perfect f
       <a href="https://www.amazon.com/DuoDiner-Necklace-Stainless-Valentines-Boyfriend/dp/B0BG6T53G9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cuban-Link-Chain-Necklace.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
         ✔️ Stylish and masculine design<br><br>
         ✔️ Made from high-quality stainless steel<br><br>
         ✔️ Classic and timeless accessory<br><br>

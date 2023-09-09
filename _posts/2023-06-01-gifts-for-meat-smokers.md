@@ -28,7 +28,7 @@ The Droyek cocktail smoker kit comes with everything they need to get started: a
       <a href="https://www.amazon.com/Whiskey-Torch%EF%BC%8CDroyek-Exquisite-Packaging-Bourbon/dp/B0BNNBZXS9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Droyek-Cocktail-Smoker-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Cool visual effects add a touch of excitement<br><br>
   		✔️ Premium wood smoking chips for authentic smoky flavor<br><br>
   		✔️ Compact and portable, perfect for outdoor use<br><br>
@@ -47,7 +47,7 @@ This charcoal smoker comes with a cover and offers a cooking experience like no 
       <a href="https://www.amazon.com/Weber-711001-Mountain-14-Inch-Charcoal/dp/B00FKE67V2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Weber-Smokey-Mountain-Cooker.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Multiple sizes available to fit different needs<br><br>
   		✔️ Superior heat retention for consistent smoking<br><br>
   		✔️ Durable porcelain-enameled finish resists rusting and peeling<br><br>
@@ -67,7 +67,7 @@ The pellets are easy to use, requiring no soaking with just 1/3 cup of pellets n
       <a href="https://www.amazon.com/BBQrs-Delight-Wood-Smoking-Pellets/dp/B00L2AD8D8/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wood-Smoking-Pellets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Versatile variety pack with 6 unique wood flavors<br><br>
   		✔️ Easy-to-use pellets, no soaking required<br><br>
   		✔️ Compatible with all types of outdoor cookers<br><br>
@@ -87,7 +87,7 @@ Made with comfort and quality in mind, this t-shirt comes in a range of colors a
       <a href="https://www.amazon.com/Great-Gift-BBQ-Smoker-Retro/dp/B07LCBNSGW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Vintage-My-Meat-Smoking-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Stylish vintage distressed design for a cool and unique look<br><br>
   		✔️ Lightweight and comfortable, making it perfect for all-day wear<br><br>
   		✔️ Suitable for BBQ and smoker enthusiasts of all levels<br><br>
@@ -106,7 +106,7 @@ Each bottle in this collection is inspired by different strains and infused with
       <a href="https://www.uncommongoods.com/product/add-your-own-herbs-edible-hot-sauce" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Add-Your-Own-Herbs-Edible-Hot-Sauce.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Unique and innovative concept for infused hot sauces<br><br>
   		✔️ Crafted with high-quality chilis, spices, and complementary terpenes<br><br>
   		✔️ Allows customization by adding your preferred herbal infusion<br><br>
@@ -126,7 +126,7 @@ This versatile gift set goes beyond the grill and can be utilized in the kitchen
       <a href="https://www.amazon.com/Culinary-Natives-BBQ-Heat-Resistant-Accessories/dp/B07MR6JQJT/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/BBQ-Heat-Resistant-Accessories.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Heat-resistant gloves for superior hand protection up to 500°F<br><br>
   		✔️ Meat shredder claws for easy and efficient shredding of grilled food<br><br>
   		✔️ Instant-read meat thermometer for precise temperature control<br><br>
@@ -146,7 +146,7 @@ The set includes a spatula, fork, tongs, and cleaning brush, providing all the r
       <a href="http://amazon.com/MAGIC-FLAME-Accessories-Grilling-Stainless/dp/B09722231N/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/BBQ-Grill-Stainless-Accessories.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Comprehensive set with all essential grill tools<br><br>
   		✔️ Dishwasher-safe for easy cleaning<br><br>
   		✔️ Extra thick, solid stainless steel for durability and safety<br><br>
@@ -165,7 +165,7 @@ Crafted from 100% food-grade and premium anti-rust culinary stainless steel, the
       <a href="https://www.amazon.com/Premium-Meat-Injector-Kit-Stainless/dp/B07S93MXPQ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Premium-Meat-Injector-Kit-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Professional-grade stainless steel for durability<br><br>
   		✔️ Versatile use for meats, fruits, and more<br><br>
   		✔️ Easy to take apart and clean<br><br>
@@ -185,7 +185,7 @@ With clear temperature guidelines for pork, beef, chicken, and fish, they'll nev
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/771356250/animal-temperature-magnets-set-of-4-sale" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Animal-Temperature-Magnets-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
       ✔️ Thoughtful and unique gift for meat smokers<br><br>
       ✔️ Clear and accurate cooking temperatures for various meats<br><br>
       ✔️ Made with durable PETG filament for long-lasting use<br><br>
@@ -204,7 +204,7 @@ With the Govee Home App, they can access a range of USDA-recommended temperature
       <a href="https://www.amazon.com/Govee-Thermometer-Bluetooth-Wireless-Grilling/dp/B08317TDP1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Bluetooth-Meat-Thermometer.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Bluetooth monitoring for remote temperature control<br><br>
   		✔️ Smart alerts to prevent overcooking or burning<br><br>
   		✔️ Food grade waterproof probes for reliable results<br><br>
@@ -223,7 +223,7 @@ Its retro and noble design adds a touch of sophistication to any gathering. With
       <a href="https://www.amazon.com/Cocktail-Kit-Skull-Chips-Old-Fashioned-Cocktails/dp/B0BK8H48V9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Skull-Cocktail-Smoker-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Unique and noble design with handmade skull shape<br><br>
   		✔️ Intense smoky flavor with just one spoon of wood chips<br><br>
   		✔️ Durable purple clay construction, lasting 3000+ drinks<br><br>
@@ -243,7 +243,7 @@ This must-have kitchen and BBQ tool ensures safe and healthy cooking with its 30
       <a href="https://www.amazon.com/Injector-Professional-Marinade-Capacity-Including/dp/B08R7FBV64/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/BBQ-Monster-Meat-Injector-Syringe-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Safe and healthy materials for worry-free cooking<br><br>
   		✔️ Sturdy construction for long-lasting use<br><br>
   		✔️ Versatile application for various meats and gatherings<br><br>
@@ -263,7 +263,7 @@ This set offers a unique and explosive collection of seven signature seasonings.
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1042237006/sampler-pack-seasonings-rubs-spice" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Seasonings-Sampler-Pack-960x954.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Seven signature seasonings to explore different flavors<br><br>
   		✔️ Unique and explosive combinations of spices for meats<br><br>
   		✔️ MRE themed box makes it a thoughtful and exciting gift<br><br>
@@ -283,7 +283,7 @@ The set includes heat-resistant silicone grilling gloves, durable shredding claw
       <a href="https://www.amazon.com/AMZ-BBQ-CLUB-Accessories-Orange-Plastic-5-Piece/dp/B06X3RCW37/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Barbecue-Accessories-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Heat-resistant silicone gloves for safe handling<br><br>
   		✔️ Durable shredding claws for easy meat preparation<br><br>
   		✔️ Instant-read digital thermometer for precise cooking<br><br>
@@ -303,7 +303,7 @@ No more need to check their phone or rely on memory - these meat temp magnet smo
       <a href="https://www.amazon.com/Levain-Co-Temperature-Magnet-Smoker/dp/B09XJCG3FP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Meat-Temperature-Magnet-BBQ-Guide.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
       ✔️ Precise and verified temperature and time information<br><br>
       ✔️ Convenient and easy-to-read at a quick glance<br><br>
       ✔️ Durable and weather-resistant design<br><br>
@@ -322,7 +322,7 @@ It features a juice groove, non-slip rubber feet, and serving handles for added 
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/857699316/traeger-yoder-green-mountain-compatible" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Cutting-Board-960x721.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Custom fit for your specific smoker model<br><br>
   		✔️ Versatile as a cutting board and serving tray<br><br>
   		✔️ Option for custom engraving for a personal touch<br><br>
@@ -341,7 +341,7 @@ Crafted from 100% food-grade silicone, this basting brush is not only safe but a
       <a href="https://www.amazon.com/Basting-Brush-Cooking-Built-Bottle/dp/B09R977HVF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Silicone-Basting-Brush-for-Cooking.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Built-in brush for effortless basting<br><br>
   		✔️ Premium food-grade material for safety<br><br>
   		✔️ Large capacity bottle for continuous use<br><br>
@@ -361,7 +361,7 @@ These gloves are designed with the pit master in mind, featuring a non-slip five
       <a href="https://www.amazon.com/RAPICCA-Barbecue-Waterproof-Resistant-Fireproof/dp/B0748DCDGC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Heat-Resistant-BBQ-Gloves.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Food-grade neoprene rubber for safety<br><br>
   		✔️ Comfortable and flame resistant<br><br>
   		✔️ Easy to clean and maintain<br><br>
@@ -381,7 +381,7 @@ Compatible with Green Egg Smoker and electric charcoal starter smoker accessorie
       <a href="https://www.amazon.com/Zorestar-Smokers-Variety-Smoking-Grilling/dp/B07G184JWF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Zorestar-Wood-Chips-for-Smoker.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Six different wood chip flavors to choose from<br><br>
   		✔️ Eco-friendly packaging with additional kindling use<br><br>
   		✔️ Made purely of wood with no additives or chemicals<br><br>
@@ -401,7 +401,7 @@ What sets this t-shirt apart is its versatility. It's perfect for casual wear an
       <a href="https://www.amazon.com/Funny-Pitmaster-Shirt-Smoker-T-Shirt/dp/B08HRLKFRK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/I-Smoke-Meat-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Unique and humorous design for meat smokers<br><br>
   		✔️ Available in various colors and sizes for a perfect fit<br><br>
   		✔️ Made with comfortable and breathable fabric<br><br>
@@ -421,7 +421,7 @@ Made from natural and organic trees, these wood chips are chemical-free, ensurin
       <a href="https://www.amazon.com/Natual-Wood-Chips-Smoker-Gift/dp/B0963TVJWF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Natural-Wood-Chips-for-Smoker-960x645.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Eight premium smoking flavors offer diverse taste options<br><br>
   		✔️ Made from natural and organic trees, no chemicals<br><br>
   		✔️ Quickly ignite to create delicate smokey flavor<br><br>
@@ -440,7 +440,7 @@ Grillie allows them to barbecue a wide variety of foods that were once challengi
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1240291345/mygrillie-2-pack" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/22DONE-in-ONE22-Grillie-960x826.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Versatile grilling options for various foods<br><br>
   		✔️ Time-saving, cooks for 16 people in 15 minutes<br><br>
   		✔️ Easy to clean, dishwasher-safe stainless steel<br><br>
@@ -459,7 +459,7 @@ No more wires or guesswork, thanks to its wireless and guided cook system that e
       <a href="https://www.amazon.com/MEATER-Thermometer-Rotisserie-Bluetooth-Connectivity/dp/B07H8WTFHW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wireless-Smart-Meat-Thermometer-1.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ 100% wire-free for unrestricted cooking freedom<br><br>
   		✔️ Dual temperature sensors for precise monitoring<br><br>
   		✔️ Rechargeable with over 24 hours of continuous cooking per charge<br><br>
@@ -478,7 +478,7 @@ Inside the cookbook, they can discover the fundamentals of wood pellet grilling 
       <a href="https://www.amazon.com/Traeger-Grill-Bible-Traeger-Grillmaster/dp/1802602755/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/22Traeger-Grill-Bible22-Book.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Comprehensive guide for Traeger grill owners<br><br>
   		✔️ Variety of recipes for meats, fish, vegetables, and more<br><br>
   		✔️ Tips for new pitmasters to enhance grilling skills<br><br>
@@ -498,7 +498,7 @@ With a sturdy stainless steel construction, these baskets are designed to withst
       <a href="https://www.amazon.com/Modern-Innovations-Vegetable-Hamburger-Vegetables/dp/B0BCL58FK1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Heavy-Duty-Vegetable-Grill-Baskets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Sturdy stainless steel construction for long-lasting durability<br><br>
   		✔️ Superior temperature resistance, perfect for high-heat grilling<br><br>
   		✔️ Perforated design prevents food from slipping through the grill<br><br>
@@ -518,7 +518,7 @@ Packed with top-notch grilling accessories, including a smoker box that keeps as
       <a href="https://www.amazon.com/Cooking-Gift-Set-Smoker-Birthday/dp/B01DVJ66H2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wood-Smoked-BBQ-Grill-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ High-quality grilling accessories loved by grillers<br><br>
   		✔️ All-natural wood chips for authentic smoky flavors<br><br>
   		✔️ A thoughtful and unique gift box for meat smokers<br><br>
@@ -537,7 +537,7 @@ Packaged in a charming burlap bag or a convenient box, you have two options to c
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1054465588/smoker-accessories-grill-big-green-egg" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Whiskey-Barrel-Smoker-Chips-960x804.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Enhances BBQ flavor with whiskey barrel wood<br><br>
   		✔️ Compatible with Big Green Egg and more<br><br>
   		✔️ Conveniently packaged for gifting<br><br>
@@ -556,7 +556,7 @@ The set's safety and durability make it a reliable choice, with stainless steel 
       <a href="https://www.amazon.com/Piece-Ultimate-Grill-Smoker-Set/dp/B074HN9G45/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/8-Piece-Smoker-BBQ-Tool-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Ultimate 8-piece BBQ tool set for meat smokers<br><br>
   		✔️ Versatile, works on any type of grill or smoker<br><br>
   		✔️ Safe and durable, made with premium materials<br><br>
@@ -576,7 +576,7 @@ This premium slicing knife is designed to make carving and slicing brisket, turk
       <a href="https://www.amazon.com/Cutluxe-Slicing-Carving-Knife-Ergonomic/dp/B07VLW8677/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cutluxe-Slicing-Carving-Knife.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Effortless carving and slicing of meats<br><br>
   		✔️ Comfortable and maneuverable full tang handle<br><br>
   		✔️ High-carbon German steel for long-lasting performance<br><br>
@@ -595,7 +595,7 @@ With its 32 fluid ounces large capacity and airtight lid, no more frequent refil
       <a href="https://www.amazon.com/WEQUALITY-Replaceable-Set%EF%BC%8CGrill-Accessories%EF%BC%8CFathers-Dad%EF%BC%8CPremium/dp/B09NXY5P63/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Basting-Pot-with-Replaceable-Brush-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Airtight and heatable basting pot keeps sauces warm and ready<br><br>
   		✔️ Convenient and easy-to-control design with removable brushes<br><br>
   		✔️ Safe and healthy with food-grade stainless steel and BPA-free silicone<br><br>
@@ -615,7 +615,7 @@ This amazing gadget allows them to infuse natural smoke flavor into meat, cheese
       <a href="https://www.amazon.com/Smoking-Gun-Portable-Infuser-Cocktails/dp/B07MZF9ZYM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Smoking-Gun-960x623.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Adds natural smoke flavor without heat<br><br>
   		✔️ Easy alternative to traditional smokers<br><br>
   		✔️ Great gift for cooking and smoking enthusiasts<br><br>
@@ -634,7 +634,7 @@ Each package contains premium wood pellets, carefully crafted from top-grade woo
       <a href="https://www.amazon.com/Zorestar-Smoker-Pellets-Variety-Pack/dp/B095V61NNS/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/All-Natural-Wood-Smoking-Pellet-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Variety pack with perfect wood assortment<br><br>
   		✔️ Completely natural with no additives<br><br>
   		✔️ Breathtaking aroma for authentic smoke flavor<br><br>
@@ -654,7 +654,7 @@ With its 8x4" sturdy iron base, it's designed to press steaks and meats flat on 
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1414771294/personalized-custom-name-initials-cast" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Name-Steak-Weight-960x763.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
   		✔️ Personalized touch with custom name or phrase<br><br>
   		✔️ Reduces cooking time and ensures even cooking<br><br>
   		✔️ Versatile for use with steaks and bacon<br><br>
@@ -674,7 +674,7 @@ Each container holds 19.2 oz of pure flavor, perfect for grilling enthusiasts to
       <a href="https://www.amazon.com/Rub-Your-Butt-Championship-Seasoning/dp/B00MYH4JS6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Championship-BBQ-Seasoning-Gift-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
       ✔️ Three mouthwatering and distinctive flavors<br><br>
       ✔️ Generous 19.2 oz containers for ample use<br><br>
       ✔️ Elevates the taste of various meats<br><br>
@@ -694,7 +694,7 @@ The set includes a range of premium-quality natural spices sourced from differen
       <a href="https://www.amazon.com/TAILGATE-Pitmaster-Seasonings-Essentials-Competition/dp/B098PDVQPW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Rare-Pitmaster-Gourmet-Seasonings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      **Pros**<br>
+      <i>Pros</i><br><br>
       ✔️ Premium and exotic flavors from around the world<br><br>
       ✔️ Handcrafted blends for bold and rich tastes<br><br>
       ✔️ Access to exclusive secret pitmaster recipes<br><br>

@@ -28,7 +28,7 @@ The Sign comes with a set of interchangeable pieces, each representing different
       <a href="https://www.amazon.com/Seasonal-Interchangeable-Welcome-decoration-lovers/dp/B0BJ6TLJP2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Seasonal-Interchangeable-Welcome-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Charming and versatile decoration<br><br>
       ✔️ Thoughtful and handmade gift<br><br>
       ✔️ Interchangeable pieces for every season<br><br>
@@ -48,7 +48,7 @@ The vibrant colors and lifelike portrayal of the Golden Retriever make it an eye
       <a href="https://www.amazon.com/YISUMEI-Golden-Retriever-Blanket-Watercolor/dp/B09PG46XYK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Watercolor-Dog-Blanket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Artistic and heartwarming design<br><br>
       ✔️ Handmade with love and care<br><br>
       ✔️ Premium quality and comfort<br><br>
@@ -68,7 +68,7 @@ Made from high-quality materials, they offer a soft and cozy feel against the sk
       <a href="https://www.amazon.com/Golden-Retriever-Pajama-Pants-Comfort/dp/B08FXYKYNL/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Pet-Lover-Pajama-Pants.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Adorable and charming design<br><br>
       ✔️ Handmade with attention to detail<br><br>
       ✔️ Comfortable and cozy to wear<br><br>
@@ -88,7 +88,7 @@ The umbrella measures 33 inches in length and 40 inches in diameter when open, o
       <a href="https://www.uncommongoods.com/product/choose-your-dog-breed-umbrella" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Dog-Breed-Umbrella.webp" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Personalized tribute to their dog<br><br>
       ✔️ Handmade with love and care<br><br>
       ✔️ High-quality and durable materials<br><br>
@@ -108,7 +108,7 @@ The vibrant colors and attention to detail make these socks a true fashion state
       <a href="https://www.amazon.com/Cavertin-Dachshund-Flamingo-Retriever-Elephant/dp/B098W7J1WH/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cavertin-Womens-Socks-Pug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Adorable and heartwarming design<br><br>
       ✔️ High-quality and comfortable materials<br><br>
       ✔️ Fits perfectly and stays in place<br><br>
@@ -128,7 +128,7 @@ Its elegant and timeless design features a delicate tree motif, symbolizing grow
       <a href="https://www.amazon.com/Willow-Tree-sculpted-hand-painted-keepsake/dp/B0007UX0V4" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Hand-painted-Keepsake-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Thoughtful, emotional gift<br><br>
       ✔️ Exquisite hand-painted craftsmanship<br><br>
       ✔️ Perfect for preserving cherished memories<br><br>
@@ -148,7 +148,7 @@ The artistry behind this figurine is truly awe-inspiring, capturing the depth of
       <a href="https://www.amazon.com/Willow-Tree-sculpted-hand-painted-figure/dp/B06ZY8ZBB7" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Sculpted-Willow-Tree-Figurine.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Emotional and heartfelt gift<br><br>
       ✔️ Exquisitely hand-painted craftsmanship<br><br> 
       ✔️ Timeless and versatile design<br><br>
@@ -168,7 +168,7 @@ Measuring 8 x 10 inches, this art print is a standard size, making it easy to fr
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/655275401/golden-retriever-fine-art-print-ethan" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Golden-Retriever-Art-Print.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming, emotional artwork<br><br>
       ✔️ High-quality, exquisite print<br><br>
       ✔️ Perfect for dog lovers of all ages<br><br>
@@ -188,7 +188,7 @@ The sign showcases a lifelike depiction of a Golden Retriever, radiating love an
       <a href="https://www.amazon.com/Primitives-Kathy-Wooden-Golden-Retriever/dp/B00NE2QARI/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wooden-Box-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Lifelike portrayal of a Golden Retriever<br><br>
       ✔️ Heartwarming, charming design<br><br>
       ✔️ Adds warmth, character to your decoration<br><br>
@@ -208,7 +208,7 @@ Crafted from durable and high-quality materials, this cosmetics bag is built to 
       <a href="https://www.amazon.com/G2TUP-Golden-Retriever-Anatomy-Cosmetics/dp/B09PF2164Y/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Anatomy-Of-A-Golden-Retriever-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Unique and eye-catching Golden Retriever anatomy design<br><br>
       ✔️ Durable and high-quality construction<br><br>
       ✔️ Spacious interior to accommodate various items<br><br>
@@ -228,7 +228,7 @@ The 3D design adds a touch of playfulness and uniqueness to your outfit. With a 
       <a href="https://www.amazon.com/Unisexs-Lovely-Golden-Retriever-Ankle/dp/B07P1C3JQR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Unisex-3D-Ankle-Socks.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Adorable 3D Golden Retriever design<br><br>
       ✔️ High-quality, comfortable materials<br><br>
       ✔️ Unisex design for both men and women<br><br>
@@ -248,7 +248,7 @@ This suncatcher is the perfect size to adorn any window, bringing a touch of war
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1451078339/dog-memorial-suncatcher-l-golden" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Dog-Memorial-Suncatcher.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartfelt and comforting pet memorial<br><br>
       ✔️ Beautiful Golden Retriever depiction<br><br>
       ✔️ Perfect size for window display<br><br>
@@ -268,7 +268,7 @@ The Women's Fashionable Distressed Baseball Cap measures 22-24 inches in circumf
       <a href="https://www.amazon.com/Womens-Baseball-Fashion-Distressed-Retriever/dp/B09WDYFTCL/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Womens-Baseball-Cap.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Versatile, stylish for any outfit<br><br>
       ✔️ Distressed design adds a touch of edginess<br><br>
       ✔️ Adjustable strap ensures a comfortable fit<br><br>
@@ -288,7 +288,7 @@ The Dog Zipper Cute Keychain is not just a regular key holder; it's a delightful
       <a href="https://www.amazon.com/tenghong2021-Keychain-Pendant-Jewelry-Retriever/dp/B0BRBL1XTF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Dog-Zipper-Cute-Keychain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
 ✔️ Whimsical and heartwarming dog design<br><br>
 ✔️ Sturdy and reliable zipper functionality<br><br>
 ✔️ Compact size for easy portability<br><br>
@@ -308,7 +308,7 @@ The Dog Face Pillow is not just your ordinary cushion; it's a lovable representa
       <a href="https://www.uncommongoods.com/product/dog-face-pillow" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Dog-Face-Pillow.webp" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Lifelike and heartwarming design<br><br>
       ✔️ Soft and huggable for comfort<br><br>
       ✔️ High-quality materials for durability<br><br>
@@ -328,7 +328,7 @@ Measuring approximately 60 inches in width and 50 inches in length, this blanket
       <a href="https://www.amazon.com/Retriever-Blanket-Pattern-Lightweight-Comfortable/dp/B0BTPH3QGD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Flannel-Fleece-Blanket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Charming retriever design with paw prints<br><br>
       ✔️ Soft and lightweight for year-round use<br><br>
       ✔️ Generous size for full-body coverage<br><br>
@@ -348,7 +348,7 @@ Made with waterproof and weather-resistant materials, these stickers are designe
       <a href="https://www.amazon.com/Retriever-Waterproof-Skateboard-Aesthetic-Hydroflask/dp/B0B3WQ9HPW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Cute-Waterproof-Stickers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Adorable retriever designs in vibrant colors<br><br>
       ✔️ Waterproof, weather-resistant<br><br>
       ✔️ Suitable for various surfaces like laptops and hydro flasks<br><br>
@@ -368,7 +368,7 @@ The personalized touch of your dog's name adds a unique and emotional connection
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1401866644/doodle-golden-doodle-mat-dog-welcome-mat" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Personalized-DoorMat.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming personalized design<br><br>
       ✔️ High-quality, durable construction<br><br>
       ✔️ Functional, stylish entryway decoration<br><br>
@@ -388,7 +388,7 @@ With each sip from this Skinny Wine Tumbler, you'll be reminded of the unconditi
       <a href="https://www.amazon.com/Golden-Retriever-Onebttl-Tumbler-Rainbow/dp/B09247DG9R/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/golden-retriever-gifts.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming golden retriever design with a rainbow<br><br>
       ✔️ Sleek, slender shape for easy grip<br><br>
       ✔️ Premium stainless steel construction<br><br>
@@ -410,7 +410,7 @@ Designed with practicality in mind, these slippers come with a non-slip sole, en
       <a href="https://www.amazon.com/Golden-Retriever-Super-Womens-Slippers/dp/B0815RPFNK" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Chihuahua-Super-Soft-Slippers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming Chihuahua design for dog lovers<br><br>
       ✔️ Super soft and plush for ultimate comfort<br><br>
       ✔️ Non-slip sole for secure footing<br><br>
@@ -430,7 +430,7 @@ Measuring approximately 4.75 x 3.5 inches, this stemless wine glass has the perf
       <a href="https://www.amazon.com/Happy-Golden-Retriever-Stemless-Glass/dp/B0BW2C3M4F/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Stemless-Wine-Glass.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming Golden Retriever design<br><br>
       ✔️ Emotionally uplifting and cheerful<br><br>
       ✔️ Comfortable size and weight<br><br>
@@ -450,7 +450,7 @@ Measuring approximately 4 x 3.25 inches, it offers a generous capacity of 12 oun
       <a href="https://www.uncommongoods.com/product/custom-dog-parent-mug" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Custom-Dog-Parent-Mug.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming, personalized dog parent tribute<br><br>
       ✔️ Thoughtful customization with your dog's name<br><br>
       ✔️ High-quality and durable ceramic material<br><br>
@@ -469,7 +469,7 @@ Measuring approximately 4 inches in diameter, they are the perfect size to accom
       <a href="https://www.amazon.com/Golden-Retriever-Lovers-Drink-Coasters/dp/B09NL7X6BM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Decor-Coasters-for-Drinks.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming Golden Retriever illustrations<br><br>
       ✔️ Functional protection for your furniture<br><br>
       ✔️ High-quality and durable materials<br><br>
@@ -489,7 +489,7 @@ Whether you're drying your hands, cleaning up spills, or simply displaying them 
       <a href="https://www.amazon.com/Golden-Retriever-Towels-Bathroom-Kitchen/dp/B0BNMCH9SS/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Dog-Hand-Towels.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Adorable, heartwarming design<br><br>
       ✔️ Soft, plush, and absorbent cotton material<br><br>
       ✔️ Generously sized for versatile use<br><br>
@@ -509,7 +509,7 @@ This fantastic tumbler boasts a 20-ounce capacity, providing ample space for you
       <a href="https://www.amazon.com/Subvise-Retriever-Tumbler-Stainless-Insulated/dp/B0BP7B1HMY/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Stainless-Vacuum-Insulated-Tumbler.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Keeps beverages hot or cold for hours<br><br>
       ✔️ Stylish and durable stainless-steel design<br><br>
       ✔️ Perfect size for car cup holders<br><br>
@@ -529,7 +529,7 @@ The hand-painted figurines bring life to this winter wonderland, evoking a sense
       <a href="https://www.amazon.com/CoolSnowGlobes-Woods-Cool-Snow-Globe/dp/B073JHDHN8" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Woods-Cool-Snow-Globe.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Evoke nostalgia and wonder<br><br>
       ✔️ Meticulously hand-painted figurines<br><br>
       ✔️ High-quality craftsmanship<br><br>
@@ -549,7 +549,7 @@ With a crunchy texture that promotes dental health and measures approximately 1 
       <a href="https://www.amazon.com/WAG-Treats-Chicken-Waffle-Bites/dp/B07V9Z4GZW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Treats-Chicken-Waffle-Bites.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Irresistible combination of chicken, waffles<br><br>
       ✔️ High-quality, nutritious ingredients<br><br>
       ✔️ Crunchy texture promotes dental health<br><br>
@@ -569,7 +569,7 @@ With dimensions of 15" x 12" x 8", this bag offers ample space for groceries, cl
       <a href="https://www.amazon.com/Reusable-Groceries-Washable-Convenience-Retriever/dp/B09K8Q1C39/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Reusable-Grocery-Tote-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Stylish and environmentally friendly<br><br>
       ✔️ Durable and lightweight<br><br>
       ✔️ Spacious interior<br><br>
@@ -589,7 +589,7 @@ The pendant features a lifelike depiction of a Golden Retriever, measuring appro
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/192241541/golden-retriever-necklace-custom-dog" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Sterling-Silver-Necklace.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Delicate and stunning craftsmanship<br><br>
       ✔️ Made from genuine silver for durability<br><br>
       ✔️ Lifelike portrayal of adorable essence<br><br>
@@ -609,7 +609,7 @@ The bracelet features a combination of semi-precious natural stone beads, each m
       <a href="https://www.amazon.com/JOGDIAM-Retriever-Bracelets-Daughter-Girlfriend/dp/B0C2P8XF3Z" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Natural-Stone-Charm-Bracelets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Unique natural stone beads<br><br>
       ✔️ Thoughtful Golden Retriever charm<br><br>
       ✔️ Adjustable, comfortable elastic cord<br><br>
@@ -629,7 +629,7 @@ The flower pot is made of durable and weather-resistant resin, ensuring it withs
       <a href="https://www.amazon.com/Gochoi-Retriever-Planter-Decoration-Container/dp/B0BL3FLVFY/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Garden-Decoration-Flower-Pot.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Charming and heartwarming design<br><br>
       ✔️ Durable and weather-resistant material<br><br>
       ✔️ Perfect size for small plants<br><br>
@@ -649,7 +649,7 @@ Whether you're baking for a special occasion or simply to add some canine cutene
       <a href="https://www.amazon.com/The-Fussy-Pup-COMINHKR041691-Retriever/dp/B00CMR9GG8" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Garden-Decoration-Flower-Pot.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Adorable and detailed design<br><br>
       ✔️ Made from durable, food-safe material<br><br>
       ✔️ Easy to use and clean<br><br>
@@ -669,7 +669,7 @@ The Golden Retriever Wood Wall Art is crafted from high-quality wood and measure
       <a href="https://www.amazon.com/Golden-Retriever-Decor-Friend-inches/dp/B08R22PSSN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Wood-Wall-Art-Decor.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Heartwarming tribute to Golden Retriever<br><br>
       ✔️ High-quality and durable wood material<br><br>
       ✔️ Versatile size for various rooms<br><br>
@@ -689,7 +689,7 @@ Made from soft and breathable fabric, this t-shirt ensures a cozy fit, making it
       <a href="https://www.amazon.com/Golden-Retriever-Pocket-Puppy-Shirt/dp/B07KRJPT9C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Puppy-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Adorable and lifelike pocket design<br><br>
       ✔️ Soft and breathable fabric<br><br>
       ✔️ Comfortable and cozy fit<br><br>
@@ -709,7 +709,7 @@ The Retriever Dad Cap Hat is made from high-quality cotton material, providing a
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/789309109/golden-retriever-hat-retriever-cap-dog" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230601/Retriever-Dad-Cap-Hat.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
-      <b>Pros</b><br><br>
+      <i>Pros</i><br><br>
       ✔️ Trendy and stylish design<br><br>
       ✔️ Comfortable and breathable material<br><br>
       ✔️ Adjustable strap for a custom fit<br><br>
