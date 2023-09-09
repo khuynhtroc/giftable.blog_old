@@ -12,19 +12,8 @@ permalink: /404.html
   }
 </style>
 
-<div class="notfound">
-	<div class="error-info">
-		<h1 class="error-emoji"></h1>
-		<p>/* Oops! Where are we? */</p>
-		<p><a href="{{ site.baseurl }}/">$ cd /home/</a></p>
-	</div>
- </div>
-
-<script>
-	const emojiArray = [
-		'\\(o_o)/', '(o^^)o', '(˚Δ˚)b', '(^-^*)', '(^_^)b', '(╯‵□′)╯',
-		'(=\'X\'=)', '(>_<)', '\\(°ˊДˋ°)/', 'ㄟ(▔▽▔)ㄏ'
-	];
-	const errorEmoji = emojiArray[Math.floor(Math.random() * emojiArray.length)];
-	$('.error-emoji').append(document.createTextNode(errorEmoji));
-</script>
+<div class="text-center">
+<h1 class="mt-5"><span class="badge badge-dark font-weight-normal">404</span></h1>
+<h1 class="display-1 mt-4 mb-4"> Page not found!</h1>
+<p>Please use the search bar from the above right or visit our <a href="{{site.baseurl}}/">homepage</a>!</p>
+</div>
