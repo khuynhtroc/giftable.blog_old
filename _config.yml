@@ -89,11 +89,23 @@ anchorjs: true  # if you want to customize anchor. check out `anchor.html`
 
 # Gems
 # you have to `bundle config set path 'vendor/bundle' && bundle install` before local preview
+# Plugins
 plugins:
   - jekyll-paginate
-  - jemoji
+  - jekyll-sitemap
+  - jekyll-feed
   - jekyll-seo-tag
+  - jekyll-archives
+  - jekyll-figure
 
+# Archives
+jekyll-archives:
+  enabled:
+    - categories
+  layout: archive
+  permalinks:
+    category: '/category/:name/'
+    
 include: [".htaccess", "LICENSE.txt", "*.woff", "*.ttf", "*.json"]
 exclude: ["_site", lib", "config.rb", "Capfile", "config", "Gemfile", "Gemfile.lock", "README.md", "LICENSE", "log", "Rakefile", "Rakefile.rb", "tmp", "less", "*.sublime-project", "*.sublime-workspace", "test", "spec", "Gruntfile.js", "package.json", "node_modules", "vendor", "shell", ".keep", "note.xml", "templates", "private"]
 
