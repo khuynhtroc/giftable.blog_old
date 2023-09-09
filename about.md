@@ -2,7 +2,6 @@
 layout: page
 title: About Giftable
 permalink: /about/
-catalog: true
 ---
 
 
