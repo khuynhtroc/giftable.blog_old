@@ -6,6 +6,7 @@ header-img: "img/post/20230601/gift-for-new-drivers.jpg"
 header-style: text
 permalink: "/gifts-for-drivers/"
 catalog: true
+categories: [Recipients] [Anyone]
 tags:
   - Recipients
   - Anyone
