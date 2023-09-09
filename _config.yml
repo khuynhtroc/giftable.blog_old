@@ -78,6 +78,10 @@ exclude:
   - Gemfile
   - Gemfile.lock
   - /node_modules
+  - vendor/bundle/
+  - vendor/cache/
+  - vendor/gems/
+  - vendor/ruby/
 anchorjs: true  # if you want to customize anchor. check out `anchor.html`
 # If you have timezone issue (e.g. #68) in China, uncomment to use this:
 # timezone: CN
