@@ -2,7 +2,7 @@
 layout: post
 title: Expressing Gratitude Best Gifts for Realtors After Closing
 subtitle: Discover the Top Selection of Appreciation Gifts for Realtors to Express Your Gratitude After a Successful Closing. Our Collection Features the Best Gifts for Realtors, Thoughtfully Curated to Convey Your Thanks in a Memorable Way. Explore Now and Find the Ideal Gift to Show Your Appreciation!
-header-img: "img/post/20230601/gifts-for-realtors.jpg"
+header-img: "img/post/2023/09/copied/gifts-for-realtors.jpg"
 header-style: text
 permalink: "/gifts-realtors/"
 catalog: true
