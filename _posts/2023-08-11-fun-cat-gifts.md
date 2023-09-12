@@ -490,7 +490,7 @@ Its playful design and cat-themed charm will surely brighten anyone's day, parti
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/dp/B07F27FN13/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/dp/B07F27FN13/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" alt="Fun Cat Gifts To Delight Your Feline Friend"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
