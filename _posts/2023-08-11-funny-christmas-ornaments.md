@@ -139,7 +139,7 @@ Each ornament is intricately detailed, capturing the essence of the horror movie
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Portable-Bladeless-Rechargeable-Personal-directions/dp/B09PCSR9SX/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/https://www.amazon.com/OrnamentallyYou-Horror-Movie-Ornament-Bundle/dp/B08MTMRBLJ/" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/OrnamentallyYou-Horror-Movie-Ornament-Bundle/dp/B08MTMRBLJ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/Horror-and-Halloween-Themed-Christmas-Ornaments.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
