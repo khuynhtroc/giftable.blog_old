@@ -348,7 +348,7 @@ Featuring a stunning metal frame and a generous size of approximately 33 inches 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Living-Room%EF%BC%8CMetal-Room%EF%BC%8CBig-Clocks-Ticking%EF%BC%8C33/dp/B0C49HSBMP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/Metal" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Living-Room%EF%BC%8CMetal-Room%EF%BC%8CBig-Clocks-Ticking%EF%BC%8C33/dp/B0C49HSBMP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/Metal-Large-Wall-Clock-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
