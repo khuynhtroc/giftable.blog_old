@@ -243,7 +243,7 @@ These charming and practical coasters protect your furniture from water rings an
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/French-Bulldog-Lovers-Drink-Coasters/dp/B0921K4JR7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/Cork" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/French-Bulldog-Lovers-Drink-Coasters/dp/B0921K4JR7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/Cork-Drink-Coasters.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
