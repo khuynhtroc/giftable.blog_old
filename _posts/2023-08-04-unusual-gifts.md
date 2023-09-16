@@ -460,16 +460,6 @@ Beat the heat and embrace the breeze with this must-have accessory that brings a
 
 With its rechargeable battery, you can enjoy up to 6 hours of refreshing airflow on a single charge. The adjustable airflow speed allows you to customize the intensity of the breeze to your liking.
 
-**Pros:**
-
-✔️ Hands-free cooling relief for on-the-go comfort
-
-✔️ Bladeless design ensures safety and peace of mind
-
-✔️ Rechargeable battery offers up to 6 hours of use
-
-[Buy from Amazon](https://www.amazon.com/Portable-Bladeless-Rechargeable-Personal-directions/dp/B09877QJCF/)
-
 <div class="f-grid">
     <div class="f-grid-col">
       <a href="https://www.amazon.com/Portable-Bladeless-Rechargeable-Personal-directions/dp/B09877QJCF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/Portable-Neck-Fan.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
