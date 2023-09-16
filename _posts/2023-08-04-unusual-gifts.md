@@ -29,9 +29,9 @@ This canvas poster measures 21 x 17 inches, making it a stunning centerpiece for
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Unique and unconventional design, perfect for gothic and artistic souls
-      ✔️ Customizable with names and nicknames, adding a personal touch to your gift
-      ✔️ A meaningful and emotional way to express your love and devotion
+      ✔️ Unique and unconventional design, perfect for gothic and artistic souls<br><br>
+      ✔️ Customizable with names and nicknames, adding a personal touch to your gift<br><br>
+      ✔️ A meaningful and emotional way to express your love and devotion<br><br>
       <p class="text-center"><a href="https://loveable.ai/collections/best-sellers/products/skeleton-couple-tarot-card-custom-names-personalized-nicknames-canvasposter-gothic-couple-style-best-valentine-anniversary-gift-for-her-him-wall-hanging-212icnnpca217?&variant=44164280680680" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
