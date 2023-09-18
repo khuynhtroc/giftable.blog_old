@@ -23,7 +23,8 @@ Are you tired of worrying about your precious bottles breaking or spilling durin
 
 The Cana & Co. Bottle Wine Carrier is designed to keep your wine safe and secure during travel. With its durable and sturdy construction, you can trust that your bottles will be well-protected.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Cana-Co-Bottle-Wine-Carrier/dp/B0B5BCJPVZ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Cana-Co-Bottle-Wine-Carrier.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -41,7 +42,8 @@ Experience the magic of effortless wine opening with the WineOvation Electric Wi
 
 The WineOvation Electric Wine Opener is designed to make opening wine bottles a breeze. With just a push of a button, you can effortlessly remove the cork in seconds, allowing you to enjoy your favorite wine without any hassle.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/WineOvation-Electric-Wine-Opener-WNO-01P/dp/B015WUQ5VA/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/WineOvation-Electric-Wine-Opener.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -59,7 +61,8 @@ Display your wine corks in style with the Wine Cork Holder. Are you looking for 
 
 With a sturdy construction and a size of approximately 12 inches in height, this cork holder can hold a significant number of wine corks. Simply drop the corks through the top opening, and watch as the collection grows over time.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Wine-Cork-Holder-Monogram-Letter/dp/B075C2PFCH/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wine-Cork-Holder.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -77,7 +80,8 @@ Experience the joy of sipping perfectly chilled wine anywhere with the Vinglacé
 
 With its sleek and modern design, the Vinglacé Wine Bottle Insulator is a must-have accessory for wine enthusiasts. It is designed to fit most standard-sized wine bottles, providing a snug and secure fit.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Vinglac%C3%A9-Insulator-Stainless-Insulated-Adjustable/dp/B07RR9D5N9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Vinglace-Wine-Bottle-Insulator.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -95,7 +99,8 @@ The Ivation Wine Gift Set is a must-have for wine enthusiasts who want to savor 
 
 Measuring approximately 7 inches in height and 2.5 inches in diameter, this electric wine preserver is portable and convenient to use. It comes with two stoppers, allowing you to preserve multiple bottles at once.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Ivation-Electric-Preserver-Stoppers-Charging/dp/B07JJS258Y/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Ivation-Wine-Gift-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -113,7 +118,8 @@ Indulge in the beauty and elegance of the Love Crystal Decanter, and let it be a
 
 Measuring approximately 10 x 6 inches in width, this decanter is the perfect size to hold your favorite wine or whiskey. It has a capacity of 750ml, allowing you to indulge in multiple servings without the need for frequent refills.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1269913678/love-crystal-decanter-for-wine-whiskey" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Love-Crystal-Decanter.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -129,7 +135,8 @@ Measuring approximately 10 x 6 inches in width, this decanter is the perfect siz
 
 The Tooarts Cat Shaped Wine Holder is a mesmerizing piece of art that resembles a tree, with branches delicately crafted in a swirling pattern. Its distinctive design creates a sense of movement and elegance, making it a conversation starter and a focal point in any room.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Tooarts-Shaped-Sculpture-Practical-decoration/dp/B01HPTQ8WW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Tooarts-Cat-Shaped-Wine-Holder.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -147,7 +154,8 @@ Indulge in the ultimate wine tasting experience with the Stemless Aerating Wine 
 
 Crafted with precision and elegance, the Stemless Aerating Wine Glasses feature a unique design that allows for maximum aeration of your wine. The curved shape of the glass promotes the swirling motion, enhancing the wine's oxygen exposure and unlocking its full potential.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Stemless-Aerating-Glasses-Chevalier-Collection/dp/B015TBAOMI" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Stemless-Aerating-Wine-Glasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -165,7 +173,8 @@ Experience the joy of sipping your favorite wine in style with the Savvy Outdoor
 
 Enjoy wine with your loved ones using the Savvy Outdoors Wine Tote Bag which includes two premium insulated steel stemless wine cups, making it a perfect wine combo for your picnic, park, beach, or pool gatherings.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/One-Savvy-Girl-Stainless-Stemless/dp/B07HVCJZQC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Savvy-Outdoors-Wine-Tote-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -183,7 +192,8 @@ Introducing the Host Wine Freeze Cooling Cups - the ultimate solution to keeping
 
 These cups have a generous capacity of 8.5 ounces, allowing you to enjoy a generous pour of your favorite wine. The durable construction ensures that the cups maintain their chill for extended periods.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Host-Wine-Freeze-Cooling-Cups/dp/B00CH67Y54/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Host-Wine-Freeze-Cooling-Cups.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -201,7 +211,8 @@ Are you tired of ordinary and plain glassware? These Funny Tumbler Glasses are h
 
 With their witty and humorous phrases, these glasses are sure to spark conversations and laughter among your friends and family. Each glass is carefully crafted with a unique and funny quote that will brighten up any gathering.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Funny-Tumbler-Glasses-Stemless-Friends/dp/B0BTPPQJDX/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Funny-Tumbler-Glasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -217,7 +228,8 @@ With their witty and humorous phrases, these glasses are sure to spark conversat
 
 With its unique and artistic design, this serving tray stands out from the ordinary. It features a captivating pattern that instantly catches the eye and sparks curiosity. Made from high-quality materials, this tray is not only visually appealing but also durable and long-lasting.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1235106751/1-serving-tray-unique-gift-ideas-for" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/1-Serving-Tray.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -235,7 +247,8 @@ Introducing the Wine and Coffee Mug - the perfect gift for wine lovers with a tw
 
 Featuring a witty and eye-catching design, this mug is sure to bring a smile to your face every time you use it. The clever graphic combines the elegance of a wine glass with the familiar shape of a coffee mug, creating a delightful visual surprise.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/683762713/wine-and-coffee-mug-wine-lover-gift" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wine-And-Coffee-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -253,7 +266,8 @@ Indulge in the art of wine appreciation with the Electric Rechargeable Wine Aera
 
 The set includes two stoppers to preserve your wine's freshness and prevent oxidation. The stoppers are designed to fit most standard wine bottles, ensuring a secure seal and prolonged enjoyment of your favorite wines.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Electric-Rechargeable-Aerator-Stoppers-Outdoor/dp/B09XB3CMC6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Electric-Rechargeable-Wine-Aerator-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -271,7 +285,8 @@ Indulge in the pleasure of perfectly chilled wine with the Chiller Premium Wine 
 
 It features a double-walled stainless steel construction that effectively keeps your wine cold for hours, even in hot and humid environments.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Chiller-Premium-Insulate-Accessory-Champagne/dp/B08XXP2KD4/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Chiller-Premium-Wine-Bottle-Insulator.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -289,7 +304,8 @@ Discover the Vintage Merlot Wine Soap - the perfect way to create a nostalgic an
 
 Our wine soap is phthalate-free, cruelty-free, and is made with great ingredients like rosemary leaf extract, cranberry seed, and REAL WINE! Since wine is rich in vitamins, minerals, antioxidants and amino acids, it is an excellent treatment for your skin!
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Vintage-Birthdays-Natural-Relaxation-Accessories/dp/B0798W1W9H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Vintage-Merlot-Wine-Soap.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -307,7 +323,8 @@ Elevate your wine experience and indulge in the luxury of effortless wine openin
 
 With its elegant stainless steel design, the Secura Electric Wine Opener is not only functional but also adds a touch of sophistication to your wine experience. This wine opener is designed to make opening your favorite bottles of wine effortless and enjoyable.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Secura-SWO-3N-Electrical-Bottle-Stainless/dp/B01261VEOG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Secura-Electric-Wine-Opener.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -323,7 +340,8 @@ With its elegant stainless steel design, the Secura Electric Wine Opener is not 
 
 This fantastic gift package includes two charming wine glasses and two funny dish towels, all designed with wine lovers in mind. The wine glasses feature witty and relatable wine-themed phrases that are guaranteed to spark laughter and create a cheerful atmosphere during wine nights.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.etsy.com/listing/641678672/wine-gift-wine-glasses-funny-dish-towels" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Funny-Wine-Glasses-And-Dish-Towels.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -341,7 +359,8 @@ Embrace the beauty and artistry of the Metal Wine Barrel Cork Holder, and let it
 
 This decorative sculpture features a beautiful and playful design, showcasing a charming bird perched on a leaf-shaped container. The craftsmanship is truly remarkable, with intricate details that bring the sculpture to life.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Tooarts-Decorative-Organizer-Container-Christmas/dp/B0C1Z4Z2H9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Metal-Wine-Barrel-Cork-Holder.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -359,7 +378,8 @@ Get ready for a captivating and mind-bending experience with the Wine Bottle Puz
 
 The Wine Bottle Puzzle measures approximately 5.9 inches in length, 2.6 inches in width, and 2.6 inches in height, making it a great fit for most standard wine bottles. Its compact size allows for easy storage and transport, so you can bring the fun and challenge wherever you go.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/BSIRI-Wine-Bottle-Puzzle-Challenging/dp/B01D2QH5QU/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wine-Bottle-Puzzle.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -377,7 +397,8 @@ Elevate your champagne experience with the Cobalance Wine Chillers Bucket. Have 
 
 The Cobalance Wine Chillers Bucket measures approximately 10 inches in height and 2.5 inches in diameter, making it a compact and easy-to-handle tool. It features a stainless steel body with a stylish and ergonomic grip, ensuring a comfortable and secure hold.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Electric-Cobalance-Champagne-Stainless-Accessory/dp/B0B4BCCBMM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Cobalance-Wine-Chillers-Bucket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -395,7 +416,8 @@ This stylish and functional Allcamp Cooler Bag is designed to revolutionize your
 
 Measuring approximately 17.7 inches in length, 11 inches in width, and 13 inches in height, this cooler bag offers ample storage space. It features a large main compartment with a capacity of up to 22 liters, providing enough room for food, drinks, and even tableware.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/ALLCAMP-Cooler-Compartment%EF%BC%8CPicnic-Carrying-tableware%EF%BC%88Gray%EF%BC%89/dp/B09J8RPJ5J/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Allcamp-Cooler-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -413,7 +435,8 @@ Introducing the Wine Glasses Set, a must-have for all wine enthusiasts. Are you 
 
 With a capacity of 17 ounces, these wine glasses provide the perfect vessel for swirling and sipping your favorite red wines. The tulip-shaped bowl allows for optimal aeration, enhancing the aromas and flavors of the wine.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Wine-Glasses-set-Red-glass/dp/B088HGJK9R/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wine-Glasses-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -431,7 +454,8 @@ Celebrate your love for wine and make a fashion statement with the Wine Lover Sh
 
 This wine lover shirt comes in a variety of sizes, ranging from small to extra-large, ensuring the perfect fit for everyone. Its unisex design makes it suitable for both men and women, making it a versatile piece that can be shared among wine-loving friends and couples.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1238761324/wine-shirt-wine-lover-shirt-wine-shirts" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wine-Lover-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -449,7 +473,8 @@ Unleash the true potential of your favorite wines and savor every sip with this 
 
 The decanter aerator features a smart and efficient design, allowing for easy and controlled pouring. Its precise measurements ensure that the right amount of air is infused into the wine, unlocking its flavors and enhancing its aromas.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Decanter-Aerator-Lead-free-Hand-held-Accessories/dp/B07X8TQ8PD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wine-Decanter.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -467,7 +492,8 @@ Celebrate life's special moments with the exquisite Birthdays & Anniversaries Wi
 
 Each glass is meticulously handcrafted from high-quality, lead-free glass, ensuring a safe and enjoyable drinking experience. The elegant and timeless design of these glasses makes them a beautiful addition to any tabletop or bar.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Birthdays-Anniversaries-Retirement-Christmas-Lead-free/dp/B01CQCPYAA/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Birthdays-Anniversaries-Wine-Glasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -485,7 +511,8 @@ Elevate your wine-drinking experience and indulge in the convenience and eleganc
 
 This Wine Opener Set also includes a convenient bottle stopper, designed to preserve the flavors and aromas of your unfinished wine. The stopper fits securely into the bottle, keeping oxygen out and maintaining the quality of your wine for days.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/WBS-Wine-Corkscrew-Bottle-Stopper/dp/B0B14FJJ5S/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wine-Opener-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -503,7 +530,8 @@ Introducing the Vintage Wine Bottle Holder, a unique and captivating piece that 
 
 Imagine showcasing your favorite bottle of wine in a stunning and artistic manner. This bottle holder features an intricate and eye-catching design that will captivate the attention of your guests.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1105018526/vintage-wine-bottle-holder-unique" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Vintage-Wine-Bottle-Holder.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -521,7 +549,8 @@ Unleash the joy of picnicking with the Four-Person Picnic Backpack Basket.
 
 With its ample storage capacity and thoughtful organization, this backpack ensures you have everything you need at your fingertips. It includes compartments and pockets to neatly organize your picnic essentials, such as plates, cutlery, napkins, and even a detachable wine bottle holder.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/455001152/four-person-picnic-backpack-basket-great" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Four-Person-Picnic-Backpack-Basket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -539,7 +568,8 @@ Experience the ultimate wine enjoyment with the Chiller Accessories Set. Are you
 
 The wine chiller keeps your wine at the ideal temperature, allowing you to enjoy it at its best. The aerator enhances the flavor and aroma of the wine, unlocking its full potential. The pourer ensures a smooth and drip-free pour, while the cooler keeps your wine bottle cool and refreshing.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Chiller-Accessories-Aerator-Pourer-Cooler/dp/B08L4JNVVJ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Chiller-Accessories-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -557,7 +587,8 @@ Experience the magic of wine with the Decanter and Glasses Set by CUKBLESS. Are 
 
 The Decanter and Glasses Set features stunning iridescent glassware that catches the light and creates a mesmerizing display. The decanter, with its graceful curves and generous capacity, allows your wine to breathe and develop its flavors to perfection.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Decanter-Glasses-Iridescent-Newlyweds-CUKBLESS/dp/B0B5L7MJP4/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Decanter-And-Glasses-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -575,7 +606,8 @@ Experience the ultimate freedom to enjoy wine at your own pace with the Coravin 
 
 The system uses a needle to penetrate the cork and access the wine, while argon gas replaces the wine in the bottle to prevent oxidation. You can enjoy a glass of wine today and come back to the same bottle weeks, months, or even years later, and it will still taste as fresh as the first pour.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Coravin-Timeless-Six-Plus-Preservation/dp/B095BMTHS1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Coravin-Timeless-Six-Plus-Wine-Preservation-System.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -593,7 +625,8 @@ Elevate your drinking experience with the JoyJolt Aurora Collection Stemless Tum
 
 The JoyJolt Aurora Collection Stemless Tumblers are designed to impress. The crystal-clear glass showcases the colors and textures of your drinks, making every sip a visual delight.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="(https://www.amazon.com/JoyJolt-Collection-Tumblers-Stemless-Drinking/dp/B0B1JQRBKH/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/JoyJolt-Aurora-Collection-Stemless-Tumblers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -611,7 +644,8 @@ Experience the convenience and joy of the Rechargeable Automatic Wine Dispenser.
 
 This dispenser is designed to make wine pouring effortless and efficient. With just a simple push of a button, this sleek and stylish dispenser effortlessly removes the cork from your wine bottle, allowing you to pour the perfect glass of wine every time.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/CIRCLE-JOY-Rechargeable-Automatic-Dispenser/dp/B0BHVCBBZC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Rechargeable-Automatic-Wine-Dispenser.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -630,6 +664,7 @@ Embrace the beauty of nature and showcase your unique style with the Handmade En
 This wine glass comes with a premium velvet gift box and a gift card for your own message. It makes a wonderful Mother’s Day gift for your mom, grandma, aunt, sister, or any turtle lover in your life. It is also a great gift for weddings, birthdays, Christmas, housewarmings, and more.
 
 <div class="f-grid">
+    <div class="f-grid-col">
     <div class="f-grid-col">
       <a href="https://www.amazon.com/Turtles-Handmade-Engraved-Crackle-Turquoise/dp/B08ZCDGVPG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Handmade-Engraved-Turtles-Glass.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
