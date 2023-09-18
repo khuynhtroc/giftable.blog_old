@@ -665,7 +665,6 @@ This wine glass comes with a premium velvet gift box and a gift card for your ow
 
 <div class="f-grid">
     <div class="f-grid-col">
-    <div class="f-grid-col">
       <a href="https://www.amazon.com/Turtles-Handmade-Engraved-Crackle-Turquoise/dp/B08ZCDGVPG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Handmade-Engraved-Turtles-Glass.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
