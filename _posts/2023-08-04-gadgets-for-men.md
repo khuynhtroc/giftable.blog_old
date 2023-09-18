@@ -23,7 +23,8 @@ With this adjustable flexibly designed holder cradle dock, you can dive headfirs
 
 Featuring a compact size, the Adjustable Desktop Phone Holder Cradle Dock is more than meets the eye, ensuring durability and longevity. Its versatile design accommodates a wide range of devices, from smartphones to tablets, allowing you to do whatsoever you want.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Nulaxy-Foldable-Adjustable-Desktop-Holder/dp/B08MT5TW2Z/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Adjustable-Desktop-Phone-Holder-Cradle-Dock.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -41,7 +42,8 @@ Enter the iWALK Mini Portable Charger - a mini and portable solution that brings
 
 Featured with high-quality materials, this power bank packs a punch while effortlessly fitting into your pocket or bag. No more the frustration of a dying battery and hello to the convenience and peace of mind since this compact charger is ready to power up your devices with speed!
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/iWALK-Portable-Ultra-Compact-External-Compatible/dp/B07WPSQS8C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Mini-Portable-Charger.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -60,7 +62,8 @@ Say hello to the USB Multi-Plug Outlet Extender - the ultimate power companion t
 
 With its portable design, it keeps your devices charged and organized, embodying the philosophy of simplicity as the ultimate sophistication. Bid farewell to limited charging ports and welcome the freedom of simultaneous charging for multiple devices.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/USB-Multi-Plug-Outlet-Extender/dp/B0BPNJVYS4/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/USB-Multi-Plug-Outlet-Extender.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -79,7 +82,8 @@ Are you ready to ignite the fire of comfort and joy? Wrap your loved ones in the
 
 Featuring an ergonomic design and intelligent heating technology, this handwarmer delivers a soothing and safe heat experience. With its 12 hours of continuous heat and rechargeable capability, it ensures you never have to endure the cold alone.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Rechargeable-Electric-Handwarmers-Portable-Christmas/dp/B0BG9TB26K/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/2-in-1-Electric-Handwarmers.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -98,7 +102,8 @@ This flashlight offers versatility and rechargeable convenience like no other. F
 
 You don't need to worry about the limitations of traditional flashlights and embrace the freedom to illuminate every corner.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Coquimbo-Rechargeable-360%C2%B0Rotate-Flashlight-Inspection/dp/B07G9X19G1" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Rechargeable-LED-Work-Lights.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -117,7 +122,8 @@ Let this LED Beanie Hat with Lights be your fearless guide, leading you to hidde
 
 A rechargeable 360° rotation capability allows this flashlight gives you the power to illuminate any corner with precision. No more stumbling in the dark or settling for narrow beams of light!
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Handsfree-Rechargeable-Headlamp-Christmas-Stocking/dp/B08CXBGTT3/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/LED-Beanie-Hat-with-Lights.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -136,7 +142,8 @@ Unlock the bliss of relaxation with the Multifunctional and Ultra-quiet Percussi
 
 Let the gentle hum of the massager transport you to a world of relaxation and rejuvenation. Besides, this massager is perfect for targeting specific areas of tension and discomfort. Its versatile attachments cater to different massage needs, providing relief with precision.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Massage-Tissue-Percussion-Massager-Athletes/dp/B09JBCSC7H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Percussion-Back-Massager-Gun.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -154,7 +161,8 @@ Are you tired of struggling with stubborn screws? Revive your ruined screws and 
 
 This extractor works wonders with any drill, providing compatibility and convenience. Its extra strong 6542 material, far better than 4341 material construction ensures reliable performance and durability. No more frustrations or wasted time trying to remove stripped screws.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Damaged-Stripped-Extractor-Gadgets-HassleFree/dp/B0BDX5HVQN" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Damaged-Stripped-Screw-Extractor-Kit-Set.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -173,7 +181,8 @@ Secure your surroundings with the Motion Activated Outdoor Surveillance Cameras.
 
 Equipped with a built-in 8 AA solar panel 8 AA (not included) batteries and features, this camera ensures continuous operation without the hassle of frequent battery changes. The SIM card is already included, providing seamless connectivity.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Vosker-Weatherproof-Activated-Surveillance-Notifications/dp/B07N1T3GWT/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/61CFLUzgFgL._AC_SX466_.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -190,7 +199,8 @@ Equipped with a built-in 8 AA solar panel 8 AA (not included) batteries and feat
 
 Possessing 9-in-1 functionality including pliers, a knife, screwdrivers, and more, all conveniently packed into a compact size, this multitool is a versatile solution to various tasks, whether at home, outdoors, or on-the-go.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/HONREAL-Multitool-Boyfriend-Christmas-Day%EF%BC%8CBirthday/dp/B09XN8HQYF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/9-in-1-Multitool-Pen-Set.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -208,7 +218,8 @@ Experience ultimate relief with the Oversized Stainless Steel Telescoping Back S
 
 Its telescoping handle allows for easy adjustment, making it suitable for people of different heights. Treat yourself or surprise your loved ones with this practical and indulgent tool that brings blissful comfort to everyday life.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Oversized-Extendable-Scratcher-Stainless-Telescoping/dp/B088D85ZZD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Stainless-Steel-Telescoping-Back-Scratcher.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -226,7 +237,8 @@ Unlock endless possibilities with the Screwdriver Keychain Pocket Repair Tool. S
 
 This keychain tool, which possesses high-quality steel is a versatile solution for everyday tasks. Its compact design hides a range of useful tools, including screwdriver heads and a bottle opener, providing convenience whenever you need it.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/ROSTIVO-Screwdriver-Keychain-Pocket-Gadgets/dp/B09QKLHG3Y/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Screwdriver-Keychain-Pocket-Repair-Tool.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -245,7 +257,8 @@ Exploring power on the go with the Solar Charger Power Bank. Never run out of en
 
 Boasting a massive 20000mAh capacity, this power bank provides multiple charges for your devices, keeping you connected wherever you are. Its compact and lightweight design makes it easy to carry in your bag or pocket, ready to deliver a power boost when you need it the most.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Charger-20000mAh-Portable-Flashlight-Emergency/dp/B08BBZ48C8/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Solar-Charger-Power-Bank.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -264,7 +277,8 @@ The fan is USB rechargeable, ensuring continuous cooling without the hassle of d
 
 It features adjustable speed settings, allowing you to customize the airflow to your preference. The flexible neckband design fits snugly around your neck, providing a comfortable and secure fit.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Portable-Neck-Fan-Rechargeable-Office-White/dp/B09222XJP1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/360°-Cooling-Hanging-Fan.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -283,7 +297,8 @@ Illuminate your world with ease! This multipurpose tool combines a flashlight an
 
 With its extendable design measuring at 7.9 inches when collapsed and extending up to 22.2 inches, it reaches tight spaces effortlessly, making it a reliable companion for home, car, or outdoor adventures.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/MAFEHAN-Telescoping-Flashlight-Extendable-Christmas/dp/B0BCQMQWZ9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Telescoping-Magnetic-Pickup-Tool.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -302,7 +317,8 @@ Make every task a breeze with 51 in 1 Small Cordless Precision Screwdriver Kit. 
 
 It provides a seamless solution for all your screwdriving needs. The kit is compact and lightweight, measuring at 6.3 inches in length. Its ergonomic handle ensures a comfortable grip, allowing you to work for extended periods without strain.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Electric-Screwdriver-ELGOTAN-Precision-Milwaukee/dp/B0BLSW5CX8/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/51-in-1-Small-Cordless-Precision-Screwdriver-Kit.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -320,7 +336,8 @@ Shake up your fitness routine with the Basics Shaker Bottle and unlock your true
 
 This bottle features a convenient mixer ball that blends protein shakes, smoothies, and supplements effortlessly. The BPA-free construction guarantees safe and healthy hydration. Its compact size fits easily into gym bags and backpacks.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/AmazonBasics-Shaker-Bottle-Mixer-Ball/dp/B07ZVKK1K1" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Basics-Shaker-Bottle.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -338,7 +355,8 @@ Be prepared for any situation with the 8-in-1 Keychain Multitool, crafted from p
 
 This compact and versatile tool is a true lifesaver, offering a wide range of functions in a single, portable package. From screwdrivers to wrenches, bottle openers to knife blades, this multitool has got you covered.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Keychain-Multitool-Screwdriver-Tactical-Survival/dp/B0831HXMJJ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Multitool-Key-Chains.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -356,7 +374,8 @@ Let the rhythm take over and fill your surroundings with enchanting melodies.
 
 With its compact size and powerful sound, this portable speaker is the perfect companion for your on-the-go lifestyle. Whether you're lounging at home, picnicking in the park, or hosting a gathering with friends, our speakers provide the perfect soundtrack for every occasion.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Portable-Wireless-Bluetooth-Speakers-Accessories/dp/B09Z1R3BP2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Portable-Wireless-Bluetooth-Speakers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -375,7 +394,8 @@ Waterproof Inspection Camera allows you to venture into places previously inacce
 
 With its flexible and adjustable semi-rigid design, this endoscope is perfect for navigating tight spaces and hard-to-reach areas. Whether you're inspecting pipes, exploring crevices, or conducting maintenance work, our endoscope offers unparalleled clarity and precision.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Endoscope-Adjustable-Semi-Rigid-Waterproof-Inspection/dp/B0BR7MKHF9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Waterproof-Inspection-Camera.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -394,7 +414,8 @@ Let the flames dance and illuminate your adventures, even in the harshest condit
 
 Its compact size, measuring 2.8 inches in length, makes it easy to carry in your pocket or backpack. The camouflage pattern adds a touch of rugged style to your outdoor gear.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/lcfun-Waterproof-Windproof-Rechargeable-Flameless-Plasma-Camouflage/dp/B07GCHLDWR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Waterproof-And-Windproof-Lighter.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -413,7 +434,8 @@ Free your hands and elevate your productivity with our innovative Magnetic Wrist
 
 This versatile wristband is designed to fit all wrist sizes with its adjustable strap, providing a comfortable and secure fit. Made from high-quality materials, it ensures durability and long-lasting performance.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Magnetic-Wristband-Magnets-Wrenches-Birthday/dp/B0BR4VJ3LJ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Magnetic-Wristband.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -431,7 +453,8 @@ Say goodbye to grooming struggles and hello to effortless perfection with Electr
 
 With adjustable settings, you can easily tailor the trimmer to achieve your desired hair length. Whether you prefer a close shave or a neatly trimmed look, this trimmer has got you covered. No more worrying about water damage or struggling with maintenance.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/OLOV-Electric-Groin-Hair-Trimmer/dp/B09YH1L75X/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Electric-Groin-Hair-Trimmer.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -449,7 +472,8 @@ With 12 essential tools at your disposal, including a knife, flashlight, screwdr
 
 The robust design and secure locking mechanism provide peace of mind, preventing accidental closures and ensuring safe usage in various environments. Experience the convenience, reliability, and peace of mind it offers, and unlock your survival potential today!
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Tactical-Multitool-Survival-Flashlight-Stocking/dp/B09GFJGBWK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/12-IN-1-Tactical-Pen-Multitool-Pen.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -467,7 +491,8 @@ Introducing the Magnetic Keychain Wireless Charger, your ultimate solution for e
 
 Simply attach them to any metal surface, and let them work their magic. From your kitchen to your office, garage to workshop, these tags keep everything in place and within reach.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Portable-Magnetic-Indicators-Accessories-Compatible/dp/B09WMVHYYM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Magnetic-Keychain-Wireless-Charger.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -485,7 +510,8 @@ Introducing our game-changing Waterproof, Cool Gadgets Hands-Free Gloves, design
 
 What sets our fabric tags apart is their adjustability. With a simple and intuitive design, you can easily customize the fit to match your unique needs. Besides, they are made from durable materials that can withstand daily wear and tear, ensuring they remain a staple in your wardrobe for years to come.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/dp/B09DCHTKDF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Screenshot_1.png" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -503,7 +529,8 @@ Equip yourself for the unexpected with our Cool Gadget Tactical Supplies Tool Ki
 
 Inside, find carefully selected items including a durable multi-tool, reliable flashlight, fire starter, compass, and more.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Gifts-Husband-Daughter-Kids-Wife/dp/B08QF3YYLM/)" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Cool-Gadget-Tactical-Supplies-Tool-Kit.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -521,7 +548,8 @@ Discover the unseen with our 2.4-inch HD Handheld Waterproof Detection Camera, u
 
 Compact and lightweight, it's the perfect companion for home repairs, automotive inspections, and more. Explore the unknown and unveil the mysteries that lie beneath.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Daxiongmao-Borescope-Endoscope-Inspection-Waterproof/dp/B0B8HKQFPD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Handheld-Waterproof-Detection-Camera.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -539,7 +567,8 @@ Step into a world where cleaning becomes sustainable and effortless. Our eco-fri
 
 Measuring at a generous size of 16x16 inches, these versatile gel provide ample coverage for all your cleaning needs. Made from high-quality materials, it is gentle yet effective on various surfaces, from automotive interiors to household items.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Cleaning-Universal-Detailing-Automotive-Interior/dp/B081T7N948" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Car-Cleaning-Gel.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -557,7 +586,8 @@ Are you tired of rummaging through a tangled mess of cables and accessories? Say
 
 Measuring at 9.8 x 7.1 inches, it provides ample space to accommodate your devices and accessories. Crafted from high-quality materials, it offers durability and protection for your valuable tech gear.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/FYY-Electronic-Organizer-Accessories-Waterproof/dp/B09DGDDK1C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Travel-Cable-Organizer-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -575,7 +605,8 @@ Designed to make a statement, these Men's Peculiar Cool Gadgets are the perfect 
 
 With water-resistant capabilities, you can confidently take them with you wherever you go, rain or shine. Stay worry-free and enjoy the durability and resilience of our fashionable gadgets. These peculiar gadgets come in a compact size, measuring approximately 2.5 inches.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Soleasy-Peculiar-Gadgets-interesting-amazing/dp/B00MGGWCNO/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Mens-Peculiar-Cool-Gadgets.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -593,7 +624,8 @@ Are you bored with juggling multiple calendars and struggling to keep track of y
 
 The extendable feature allows you to customize the size of the calendar based on your needs. Expand it to fit all your commitments or collapse it for a compact display.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Hinshark-Magnetic-Calendar-Stocking-Telescoping/dp/B099KH53NX/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Telescoping-Magnetic-Pickup-Tool.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -611,7 +643,8 @@ This remarkable Camping Multitool Accessories is not just your average gadget. I
 
 With its 16-in-1 functionality, this multitool is designed to tackle various tasks with ease. From screwdrivers to survival essentials, it's a Swiss Army knife of practicality. The compact size of this multitool, measuring approximately 4 inches in length, allows for easy portability.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Multitool-Accessories-Upgraded-Survival-Screwdrivers/dp/B08ZM2KC49/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Camping-Multitool-Accessories.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -629,7 +662,8 @@ Compact yet mighty, this Portable Digital Measure Tool Range Finder boasts a 6-i
 
 Equipped with advanced features like Pythagorean distance calculation and seamless unit switching between metric and imperial, it empowers professionals and DIY enthusiasts alike.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/Measure-DTAPE-switching-Pythagorean-Distance/dp/B07VV55Q7F/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/714gHPV4U6L._AC_SX522_.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
@@ -647,7 +681,8 @@ Are you prepared for unexpected emergencies? Unleash the hidden power of solar c
 
 Featuring built-in solar panels, these Emergency Weather Radios harness the sun's energy to provide a sustainable and renewable source of power. With a compact size of 3 inches, they are designed for portability and convenience.
 
-<div class="f-grid-col">
+<div class="f-grid">
+    <div class="f-grid-col">
       <a href="https://www.amazon.com/FosPower-Emergency-Portable-Household-Flashlight/dp/B07FKYHTWP/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/71lprXHznaL._AC_SX466_.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
