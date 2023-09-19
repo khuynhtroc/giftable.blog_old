@@ -27,7 +27,7 @@ Designed for medium and large breed dogs, this dog gift basket guarantees a trul
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -46,7 +46,7 @@ The cookies arrive fresh and ready to be devoured, with a shelf life of up to 15
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Handmade-Hand-Decorated-Locally-Sourced-Ingredients/dp/B0BWSQ65P7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Wufers-Woof-It-Down-Cookie-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Handmade-Hand-Decorated-Locally-Sourced-Ingredients/dp/B0BWSQ65P7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Wufers-Woof-It-Down-Cookie-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -66,7 +66,7 @@ From grass-fed beef to healthy chicken strips with fruits and vegetables, this g
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Gift-Favorite-Perfect-Birthday-Friend/dp/B073W2TDBK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Deluxe-Dog-Gift-Box-Basket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Gift-Favorite-Perfect-Birthday-Friend/dp/B073W2TDBK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Deluxe-Dog-Gift-Box-Basket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -85,7 +85,7 @@ From tasty treats to engaging toys, each box is tailored to their unique prefere
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Gift-Box-Favorite-Canine-Barker/dp/B09JHNWQ4Q/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Deluxe-Barker-Dog-Box-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Gift-Box-Favorite-Canine-Barker/dp/B09JHNWQ4Q/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Deluxe-Barker-Dog-Box-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -104,7 +104,7 @@ Each recipe features locally sourced ingredients and a delightful mix of flavors
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://amazon.com/Portland-Company-All-Natural-Biscuits-Multipack/dp/B086HVZGYL/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Portland-Dog-Treat-Biscuits-Multipack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://amazon.com/Portland-Company-All-Natural-Biscuits-Multipack/dp/B086HVZGYL/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Portland-Dog-Treat-Biscuits-Multipack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -124,7 +124,7 @@ These tasty tendons provide lasting stimulation and occupy your dog in the most 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Nature-Gnaws-Paddywack-Tendons-Dogs/dp/B08FRMPYSG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Nature-Gnaws-Paddywack-Tendons-for-Dogs.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Nature-Gnaws-Paddywack-Tendons-Dogs/dp/B08FRMPYSG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Nature-Gnaws-Paddywack-Tendons-for-Dogs.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -144,7 +144,7 @@ Inside the box, you'll find a mystery selection of goodies that will excite and 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1156315021/dog-mom-box-mystery-dog-mom-dog-care" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Dog-Mom-Mystery-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1156315021/dog-mom-box-mystery-dog-mom-dog-care" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Dog-Mom-Mystery-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -163,7 +163,7 @@ Each pack includes four assorted packages of dog treats, made with natural, cert
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Exclusively-Perfect-Pooch-Gift-Pack/dp/B009RHEHJW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Perfect-Pooch-Dog-Gift-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Exclusively-Perfect-Pooch-Gift-Pack/dp/B009RHEHJW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Perfect-Pooch-Dog-Gift-Pack.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -183,7 +183,7 @@ The assortment of fresh-baked treats features incredible aroma and taste that do
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/ClaudiaS-Canine-Cuisine-Signature-Cookies/dp/B00JW3H7XO/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Buddies-Signature-Cookie-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/ClaudiaS-Canine-Cuisine-Signature-Cookies/dp/B00JW3H7XO/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Buddies-Signature-Cookie-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -203,7 +203,7 @@ This gift box comes with four toys, including two plush toys and two tennis ball
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Dog-Good-4-Piece-Toy-Gift/dp/B0132K9RTY/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Play-The-Field-Plush-Toys-Dog-Gift.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Dog-Good-4-Piece-Toy-Gift/dp/B0132K9RTY/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Play-The-Field-Plush-Toys-Dog-Gift.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -222,7 +222,7 @@ The cookies arrive fresh and ready to eat, carefully packed to ensure they maint
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/W%C3%BCfers-Handmade-Hand-Decorated-Locally-Ingredients/dp/B088KN29ZW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Handmade-Dog-Cookie-Treat-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/W%C3%BCfers-Handmade-Hand-Decorated-Locally-Ingredients/dp/B088KN29ZW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Handmade-Dog-Cookie-Treat-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -242,7 +242,7 @@ Each treat is carefully handmade using quality ingredients and without any artif
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Pawtisserie-Decorated/dp/B0B85FBD4H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Three-Mutts-Market-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Three-Mutts-Market-Pawtisserie-Decorated/dp/B0B85FBD4H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Three-Mutts-Market-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -262,7 +262,7 @@ Not only are these toys fun, but they also serve as interactive and enrichment t
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Pacific-Pups-Products-Piece-Dispenser/dp/B0876PRL18" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/18-Piece-Dog-Toy-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Pacific-Pups-Products-Piece-Dispenser/dp/B0876PRL18" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/18-Piece-Dog-Toy-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -282,7 +282,7 @@ Each box is tailored to your dog's age, chew preference, and allergies, ensuring
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1223921454/build-your-own-dog-gift-box-with-each" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/CareMe-Dog-Gift-Box-960x846.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1223921454/build-your-own-dog-gift-box-with-each" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/CareMe-Dog-Gift-Box-960x846.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -302,7 +302,7 @@ Inside, you'll find a variety of toys, including a rope/ball toy, a tennis ball,
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Good-Dog-Care-Package-Gift/dp/B01DH00CJI/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Good-Dog-Care-Package.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Good-Dog-Care-Package-Gift/dp/B01DH00CJI/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Good-Dog-Care-Package.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -321,7 +321,7 @@ These squeaky toys serve a practical purpose too. They help to reduce your dog's
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Nocciola-Squeaky-Plush-Medium-Dog-Pet-Toys/dp/B07R3KQMMX" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Nocciola-Dog-Squeaky-Toys.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Nocciola-Squeaky-Plush-Medium-Dog-Pet-Toys/dp/B07R3KQMMX" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Nocciola-Dog-Squeaky-Toys.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -340,7 +340,7 @@ They can withstand even the toughest chewing sessions while helping to clean you
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/BUIBIIU-Teehting-Chihuahua-Doggie-Teething/dp/B07CBFBQDB/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/BUIBIIU-Dog-Toys-Bundle.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/BUIBIIU-Teehting-Chihuahua-Doggie-Teething/dp/B07CBFBQDB/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/BUIBIIU-Dog-Toys-Bundle.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -359,7 +359,7 @@ Inside this birthday box, you'll find beautifully designed accessories including
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/ZippyPaws-Birthday-Gift-Dogs-Squeaky/dp/B07NFBSBB5/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Colorful-Squeaky-Dog-Toys-Birthday-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/ZippyPaws-Birthday-Gift-Dogs-Squeaky/dp/B07NFBSBB5/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Colorful-Squeaky-Dog-Toys-Birthday-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -378,7 +378,7 @@ It boasts a large capacity to accommodate most pet toys and can be easily folded
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1283635305/dog-toy-basketpersonalized-pet-toy" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Personalized-Dog-Toy-Basket-960x903.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1283635305/dog-toy-basketpersonalized-pet-toy" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Personalized-Dog-Toy-Basket-960x903.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -398,7 +398,7 @@ The toys are designed to satisfy your dog's natural instincts, promote proper ch
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/MLCINI-Interactive-Boredom-Squeaky-Durable/dp/B07KJFW2HN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/14-Pack-Dog-Toys-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/MLCINI-Interactive-Boredom-Squeaky-Durable/dp/B07KJFW2HN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/14-Pack-Dog-Toys-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -418,7 +418,7 @@ The size is ideal for every puppy's needs, providing oral massage and helping to
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Interactive-Teething-Supplies-Cleaning-Toothbrush/dp/B095Y9X7TB/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Puppy-Teething-Chew-Toys-Basket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Interactive-Teething-Supplies-Cleaning-Toothbrush/dp/B095Y9X7TB/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Puppy-Teething-Chew-Toys-Basket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -437,7 +437,7 @@ Each cookie is locally made with quality ingredients, ensuring a fresh and delic
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Handmade-Decorated/dp/B0B85NBW35/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Pawgame-Decorated-Dog-Cookies-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Three-Mutts-Market-Handmade-Decorated/dp/B0B85NBW35/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Pawgame-Decorated-Dog-Cookies-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -457,7 +457,7 @@ While the toys are not indestructible, they are made with durable fabric. Give t
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1249432717/personalized-dog-gift-box-customized-pet" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Personalized-Dog-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1249432717/personalized-dog-gift-box-customized-pet" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Personalized-Dog-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -476,7 +476,7 @@ Inside the basket, you'll find an assortment of high-quality toys and treats. Wi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Best-Gift-Basket-Treat-Package/dp/B081CPJD86/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Dog-Treat-Toys-Gift-Basket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Best-Gift-Basket-Treat-Package/dp/B081CPJD86/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Dog-Treat-Toys-Gift-Basket.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -495,7 +495,7 @@ This all-in-one kit ensures you have everything you need for a journey with your
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Top-Dog-Travel-Bag-Accessories/dp/B07D7GWDDL/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Dog-Travel-Bag-Accessories-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Top-Dog-Travel-Bag-Accessories/dp/B07D7GWDDL/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Dog-Travel-Bag-Accessories-.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -514,7 +514,7 @@ Promoting relaxation and calmness, the LunaMarie spa set allows you to create a 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/LunaMarie-Essentials-Massage-Shampoo-Thoughtful/dp/B0BQYL3LF7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Luxury-Dog-Spa-Gift-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/LunaMarie-Essentials-Massage-Shampoo-Thoughtful/dp/B0BQYL3LF7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Luxury-Dog-Spa-Gift-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -533,7 +533,7 @@ Inside the tin, you'll find chicken burger bites, bursting with savory chicken f
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Jack-Pup-Burgers-Adoption-Birthday/dp/B0BM4ZGR93/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Chicken-Burger-Bites-Dog-Gifts.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Jack-Pup-Burgers-Adoption-Birthday/dp/B0BM4ZGR93/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Chicken-Burger-Bites-Dog-Gifts.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -553,7 +553,7 @@ These gluten-free treats are sourced from sunny Florida, and have a shelf life o
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1148948944/happy-barkday-box" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Personalized-Happy-Barkday-Box-960x910.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1148948944/happy-barkday-box" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Personalized-Happy-Barkday-Box-960x910.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -573,7 +573,7 @@ This assortment of durable dog toys will provide endless entertainment for your 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Designed-Playtime-Chewing-Teething-Calming/dp/B07HB8JYS2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Playtime-Puppy-Toy-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Designed-Playtime-Chewing-Teething-Calming/dp/B07HB8JYS2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Playtime-Puppy-Toy-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -592,7 +592,7 @@ Made with 100% natural human-grade ingredients, each macaron is crafted with oat
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Bonne-Filou-Strawberry-All-Natural-Ingredients/dp/B084Z199XK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Strawberry-Dog-Macaron-Treat-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Bonne-Filou-Strawberry-All-Natural-Ingredients/dp/B084Z199XK/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Strawberry-Dog-Macaron-Treat-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
