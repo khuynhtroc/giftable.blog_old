@@ -11,8 +11,6 @@ tags:
   - Halloween
 ---  
 
-div class="mb4 px3 f-size-20">
-
 Halloween is when we can be whoever or whatever we want, even if it's just for one night. But have you ever thought about dressing up with your significant other and making a statement as a couple? Couple Halloween costumes are a fantastic way to **[show off your love](https://avada.io/loveable/love-paragraphs-for-her/)** and creativity while having fun!
 
 From scary to sweet, funny to romantic, there are a couple of Halloween costumes for every taste and style. With so many choices, it can be overwhelming to decide which one but worry not. We've got you covered! Our 35 couples Halloween costumes collection will inspire you and make your Halloween night unforgettable. But it's not just about the costumes—it's about the memories you create. Halloween is a time to step out of the ordinary and into a fantasy world. It's an opportunity to connect with your partner, express your creativity, and make memories that will be cherished for a lifetime. Each piece is a **[work of art](https://avada.io/loveable/gifts-for-art-lovers/)**, allowing you to embody the characters you adore fully. We have brought your dreams to life with attention to every stitch, allowing you to display the iconic figures that have left an indelible mark on our collective imagination.
