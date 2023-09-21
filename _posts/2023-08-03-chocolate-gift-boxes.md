@@ -67,9 +67,9 @@ Each candy is thoughtfully crafted with premium ingredients, ensuring a delightf
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Exquisite assortment of premium chocolate candiesv
-      ✔️ Meticulously crafted with exceptional attention to detailv
-      ✔️ Beautifully designed packaging, perfect for giftingv
+      ✔️ Exquisite assortment of premium chocolate candies<br><br>
+      ✔️ Meticulously crafted with exceptional attention to detail<br><br>
+      ✔️ Beautifully designed packaging, perfect for gifting<br><br>
       <p class="text-center"><a href="https://www.amazon.com/Godiva-Chocolatier-Assorted-Chocolate-Gift/dp/B0921BWNBY/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
