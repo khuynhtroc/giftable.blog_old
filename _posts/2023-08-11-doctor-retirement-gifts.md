@@ -391,8 +391,8 @@ Inside, they'll find 10 carefully selected pieces of pure delight, including a h
     <div class="f-grid-col">
       <i>Pros</i><br><br>
       ✔️ Hilarious and heartwarming selection<br><br>
-      ✔️<br><br>
-      ✔️<br><br>
+      ✔️ Well-Designed Gifts for Retirees<br><br>
+      ✔️ Save Your Money<br><br>
       <p class="text-center"><a href="https://www.amazon.com/Retirement-Customized-Coworker-Grandma-Teachers/dp/B09J3BDGYW/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
@@ -542,9 +542,9 @@ The non-slip white phrasing "Do Not Disturb, I'm Retired" ensures they get all t
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️<br><br>
-      ✔️<br><br>
-      ✔️<br><br>
+      ✔️ WELL DESERVED BREAK<br><br>
+      ✔️ BLACK SOCK WITH WHITE GRIP<br><br>
+      ✔️ DIFFERENT & UNIQUE<br><br>
       <p class="text-center"><a href="https://www.amazon.com/Disturb-Retired-Funny-Length-Lounge/dp/B08298PFXL" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
