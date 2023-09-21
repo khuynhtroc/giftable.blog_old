@@ -441,398 +441,244 @@ As Pablo Picasso once said, 'Every child is an artist.' This Christmas, let your
 
 The Markers Set consists of 60 high-quality markers, carefully selected to provide a diverse and extensive color palette. The set also includes 20 exquisite coloring pages and 5 sheets of delightful stickers, adding an extra touch of fun to your artistic endeavors.
 
-**Pros:**
-
-✔️ 60 high-quality markers with a diverse and extensive color palette
-
-✔️ Smooth and vibrant ink for effortless coloring
-
-✔️ 0.4mm fine tip for intricate details and precise lines
-
-[Buy from Amazon](https://www.amazon.com/Scientoy-Supplies-Coloring-Stickers-Christmas/dp/B0BD7Q751C/r)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Scientoy-Supplies-Coloring-Stickers-Christmas/dp/B0BD7Q751C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Fruit-Scented-Markers-Set-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ 60 high-quality markers with a diverse and extensive color palette<br><br>
+      ✔️ Smooth and vibrant ink for effortless coloring<br><br>
+      ✔️ 0.4mm fine tip for intricate details and precise lines<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Scientoy-Supplies-Coloring-Stickers-Christmas/dp/B0BD7Q751C/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [24\. Preserves Sampler Variety Pack](https://www.amazon.com/Bonne-Maman-Gift-Pack-Ounces/dp/B012DH20V4/)
 
-[](https://www.amazon.com/Bonne-Maman-Gift-Pack-Ounces/dp/B012DH20V4/)
-
 With each jar of our meticulously crafted preserves, you'll embark on a culinary adventure that brings happiness and togetherness. Spread love and savor the magic of Christmas with these exquisite preserves.
 
 The set includes 8 jars of Bonne Maman's finest preserves, each containing 1 ounce of deliciousness. Indulge in the diverse flavors, ranging from the sweetness of Strawberry and Apricot to the richness of Fig and Raspberry.
 
-**Pros:**
-
-✔️ 8 jars of diverse and delicious preserves
-
-✔️ Each jar contains 1 ounce of goodness
-
-✔️ Meticulously crafted with carefully selected fruits
-
-[Buy from Amazon](https://www.amazon.com/Bonne-Maman-Gift-Pack-Ounces/dp/B012DH20V4/)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Bonne-Maman-Gift-Pack-Ounces/dp/B012DH20V4/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Preserves-Sampler-Variety-Pack-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ 8 jars of diverse and delicious preserves<br><br>
+      ✔️ Each jar contains 1 ounce of goodness<br><br>
+      ✔️ Meticulously crafted with carefully selected fruits<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Bonne-Maman-Gift-Pack-Ounces/dp/B012DH20V4/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [25\. Don’t F\*ck With My Energy Package](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1235743060/dont-fck-with-my-energy-self-care)
 
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1235743060/dont-fck-with-my-energy-self-care)
-
 The care package is a powerful statement of setting boundaries and nurturing one's well-being. It's a reminder to prioritize self-care and embrace the positive energy that surrounds us.
 
 The candle burns for approximately 25 hours, the bath bomb provides a rejuvenating bath experience, the affirmation card deck consists of 30 uplifting messages, and the satin sleep mask ensures a comfortable night's rest.
 
-**Pros:**
-
-✔️ Empowering and protective message
-
-✔️ Includes a soothing lavender-scented candle
-
-✔️ Luxurious satin sleep mask for restful sleep
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1235743060/dont-fck-with-my-energy-self-care)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1235743060/dont-fck-with-my-energy-self-care" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Dont-F^ck-With-My-Energy-Self-Care-Package.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Empowering and protective message<br><br>
+      ✔️ Includes a soothing lavender-scented candle<br><br>
+      ✔️ Luxurious satin sleep mask for restful sleep<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1235743060/dont-fck-with-my-energy-self-care" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [26\. Pop Cups Popcorn Kit](https://www.amazon.com/Opopop-Microwave-Popcorn-Collapsible-Dishwasher/dp/B09W47WCF1/)
 
-[](https://www.amazon.com/Opopop-Microwave-Popcorn-Collapsible-Dishwasher/dp/B09W47WCF1/)
-
 This Christmas, bring joy and delight to the beloved women in your life with this popcorn kit. It's not just popcorn, it's a gateway to shared laughter, cozy moments, and cherished experiences.
 
 The collapsible popcorn bowl expands to a generous size of 10 cups, allowing you to share the deliciousness with family and friends. Each flavor-infused popcorn oil pouch is carefully crafted to deliver a burst of mouthwatering taste.
 
-**Pros:**
-
-✔️ Collapsible popcorn bowl for easy storage
-
-✔️ Four flavor-infused popcorn oil pouches for gourmet taste
-
-✔️ Includes 20 compostable popcorn bags for mess-free enjoyment
-
-[Buy from Amazon](https://www.amazon.com/Opopop-Microwave-Popcorn-Collapsible-Dishwasher/dp/B09W47WCF1/)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Opopop-Microwave-Popcorn-Collapsible-Dishwasher/dp/B09W47WCF1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Pop-Cups-Popcorn-Kit-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Collapsible popcorn bowl for easy storage<br><br>
+      ✔️ Four flavor-infused popcorn oil pouches for gourmet taste<br><br>
+      ✔️ Includes 20 compostable popcorn bags for mess-free enjoyment<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Opopop-Microwave-Popcorn-Collapsible-Dishwasher/dp/B09W47WCF1/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [27\. 48 Pieces Art Painting Supplies](https://www.amazon.com/Painting-Supplies-Toddlers-Tabletop-Palettes/dp/B08HJMNCF7/)
 
-[](https://www.amazon.com/Painting-Supplies-Toddlers-Tabletop-Palettes/dp/B08HJMNCF7/)
-
 Awaken the artist within and let creativity bloom like a garden of colors. The Painting Supplies Set is a brushstroke of inspiration that will ignite the imagination of the beloved women in your life.
 
 The set includes 12 vibrant acrylic paints, 10 assorted brushes, 8 canvases (8x10 inches), and 2 tabletop easels. The acrylic paints offer rich pigmentation and smooth application, allowing for stunning artwork.
 
-**Pros:**
-
-✔️ Vibrant acrylic paints for captivating color palettes
-
-✔️ Assorted brushes for versatile brushstrokes
-
-✔️ Includes 8 canvases (8x10 inches) for artistic expression
-
-[Buy from Amazon](https://www.amazon.com/Painting-Supplies-Toddlers-Tabletop-Palettes/dp/B08HJMNCF7/)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Painting-Supplies-Toddlers-Tabletop-Palettes/dp/B08HJMNCF7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/48-Pieces-Art-Painting-Supplies-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Vibrant acrylic paints for captivating color palettes<br><br>
+      ✔️ Assorted brushes for versatile brushstrokes<br><br>
+      ✔️ Includes 8 canvases (8x10 inches) for artistic expression<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Painting-Supplies-Toddlers-Tabletop-Palettes/dp/B08HJMNCF7/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [28\. Kids Makeup Kit Toys](https://www.amazon.com/Washable-Cosmetic-Princess-Children-Christmas/dp/B09Y1QLTJY)
 
-[](https://www.amazon.com/Washable-Cosmetic-Princess-Children-Christmas/dp/B09Y1QLTJY)
-
 Let your little princess's imagination take center stage with the Washable Cosmetic Princess Makeup Kit. Watch their eyes sparkle and their confidence blossom as they engage in magical make-believe adventures.
 
 The set includes 1 cosmetic bag, 1 princess tiara, 2 lipstick tubes, 1 blush compact, 2 eyeshadow palettes, 2 nail polishes, and 3 brushes. The makeup products are washable and non-toxic, ensuring a worry-free playtime experience.
 
-**Pros:**
-
-✔️ Washable and non-toxic makeup products for worry-free play
-
-✔️ Includes a princess tiara for added enchantment
-
-✔️ Offers a variety of vibrant lipstick, blush, and eyeshadow colors
-
-[Buy from Amazon](https://www.amazon.com/Washable-Cosmetic-Princess-Children-Christmas/dp/B09Y1QLTJY)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Washable-Cosmetic-Princess-Children-Christmas/dp/B09Y1QLTJY" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Kids-Makeup-Kit-Toys-955x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Washable and non-toxic makeup products for worry-free play<br><br>
+      ✔️ Includes a princess tiara for added enchantment<br><br>
+      ✔️ Offers a variety of vibrant lipstick, blush, and eyeshadow colors<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Washable-Cosmetic-Princess-Children-Christmas/dp/B09Y1QLTJY" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [29\. Gourmet Food Gift Basket](https://www.amazon.com/Gourmet-Celebration-Popcorn-Cookies-Assorted/dp/B00FBGLDSQ)
 
-[](https://www.amazon.com/Gourmet-Celebration-Popcorn-Cookies-Assorted/dp/B00FBGLDSQ)
-
 Indulge in a symphony of flavors with the Gourmet Celebration Food Basket. This Christmas, treat your beloved ones to a delightful medley of treats that will warm their hearts and taste buds.
 
 It includes 2 bags of gourmet popcorn in sweet and savory flavors, perfect for sharing during cozy gatherings. The basket also features 3 boxes of delectable cookies with a variety of mouthwatering flavors, satisfying even the most discerning sweet tooth.
 
-**Pros:**
-
-✔️ Thoughtfully curated selection of sweet and savory treats
-
-✔️ Diverse assortment of popcorn, cookies, and assorted snacks
-
-✔️ Perfect gift for creating warm and joyful holiday moments
-
-[Buy from Amazon](https://www.amazon.com/Gourmet-Celebration-Popcorn-Cookies-Assorted/dp/B00FBGLDSQ)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Gourmet-Celebration-Popcorn-Cookies-Assorted/dp/B00FBGLDSQ" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Gourmet-Food-Gift-Basket-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Thoughtfully curated selection of sweet and savory treats<br><br>
+      ✔️ Diverse assortment of popcorn, cookies, and assorted snacks<br><br>
+      ✔️ Perfect gift for creating warm and joyful holiday moments<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Gourmet-Celebration-Popcorn-Cookies-Assorted/dp/B00FBGLDSQ" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [30\. Damn Man Flavored Nut](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122055827/damn-man-flavored-nuts-cashew-snack-box)
 
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122055827/damn-man-flavored-nuts-cashew-snack-box)
-
 Embark on a flavor-packed journey with Damn Man Flavored Nuts. This Christmas, surprise your loved ones with a snack box that will tantalize their taste buds and ignite their sense of adventure.
 
 Each flavor is carefully crafted to deliver a perfect balance of savory, sweet, and tangy notes, ensuring a delightful snacking experience.
 
-**Pros:**
-
-✔️ Uniquely flavored cashews for an adventurous snacking experience
-
-✔️ Four individual packets for freshness and convenience
-
-✔️ Perfect gift to delight and surprise food enthusiasts
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122055827/damn-man-flavored-nuts-cashew-snack-box)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122055827/damn-man-flavored-nuts-cashew-snack-box" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Damn-Man-Flavored-Nut.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Uniquely flavored cashews for an adventurous snacking experience<br><br>
+      ✔️ Four individual packets for freshness and convenience<br><br>
+      ✔️ Perfect gift to delight and surprise food enthusiasts<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1122055827/damn-man-flavored-nuts-cashew-snack-box" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [31\. Lip Gloss Set](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/)
 
-[](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/)
-
 Add a touch of shimmer and enchantment to your loved one's smile with this Lip Gloss Set. This gift set will make your beloved feel like a star, radiating joy and self-assurance.
 
 The Lip Gloss Set includes 10 exquisite shades, ranging from subtle nudes to bold pinks and captivating reds. Each lip gloss is enriched with nourishing ingredients like vitamin E and jojoba oil, providing a moisturizing and long-lasting formula that keeps lips soft and supple.
 
-**Pros:**
-
-✔️ 10 stunning shades to suit every occasion and mood
-
-✔️ Nourishing formula with vitamin E and jojoba oil for soft and hydrated lips
-
-✔️ Compact size for convenient portability and touch-ups
-
-[Buy from Amazon](https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Lip-Gloss-Set-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ 10 stunning shades to suit every occasion and mood<br><br>
+      ✔️ Nourishing formula with vitamin E and jojoba oil for soft and hydrated lips<br><br>
+      ✔️ Compact size for convenient portability and touch-ups<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Stocking-Stuffers-Christmas-Girlfriend-Valentines/dp/B09BJ8F217/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [32\. Whiskey Decanter Set](https://www.amazon.com/Kollea-Decanter-Birthday-Retirement-Dispenser/dp/B0BD3TJF61/)
 
-[](https://www.amazon.com/Kollea-Decanter-Birthday-Retirement-Dispenser/dp/B0BD3TJF61/)
-
 Raise a toast to unforgettable memories and cherished moments with the Decanter and Glasses Set. It's a symbol of togetherness, shared laughter, and creating lasting memories with loved ones.
 
 The Decanter and Glasses Set features a beautifully crafted decanter with a capacity of 800ml (27 fl oz), along with four matching glasses.
 
-**Pros:**
-
-✔️ Elegant decanter and glasses set for creating unforgettable moments
-
-✔️ Premium lead-free crystal construction for enhanced taste and aesthetics
-
-✔️ Generous 800ml (27 fl oz) capacity to accommodate ample servings
-
-[Buy from Amazon](https://www.amazon.com/Kollea-Decanter-Birthday-Retirement-Dispenser/dp/B0BD3TJF61/)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Kollea-Decanter-Birthday-Retirement-Dispenser/dp/B0BD3TJF61/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Whiskey-Decanter-Set-with-2-Oz-Glasses.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Elegant decanter and glasses set for creating unforgettable moments<br><br>
+      ✔️ Premium lead-free crystal construction for enhanced taste and aesthetics<br><br>
+      ✔️ Generous 800ml (27 fl oz) capacity to accommodate ample servings<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Kollea-Decanter-Birthday-Retirement-Dispenser/dp/B0BD3TJF61/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [33\. Personalized gift box](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1303420072/personalized-gift-box-happy-holiday-gift)
 
-[](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1303420072/personalized-gift-box-happy-holiday-gift)
-
 Make this holiday season truly unforgettable with the Personalized Gift Box. Give the gift of a customized experience, tailored specifically for your beloved, and watch their face light up with happiness.
 
 The box can be customized with the recipient's name or a special message, making it a truly unique and meaningful present. It features an elegant design, adorned with festive holiday motifs, and comes with a coordinating ribbon for a touch of sophistication.
 
-**Pros:**
-
-✔️ Customizable gift box, personalized with the recipient's name or message
-
-✔️ High-quality materials for durability and a luxurious feel
-
-✔️ Versatile size of 8" x 8" x 3" to accommodate a variety of gifts
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1303420072/personalized-gift-box-happy-holiday-gift)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1303420072/personalized-gift-box-happy-holiday-gift" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Personalized-gift-box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Customizable gift box, personalized with the recipient's name or message<br><br>
+      ✔️ High-quality materials for durability and a luxurious feel<br><br>
+      ✔️ Versatile size of 8" x 8" x 3" to accommodate a variety of gifts<br><br>
+      <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1303420072/personalized-gift-box-happy-holiday-gift" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [34\. Beard Care Kit](https://www.amazon.com/Gifts-Men-Anniversary-Boyfriend-Christmas/dp/B07VWFGRDX/)
 
-[](https://www.amazon.com/Gifts-Men-Anniversary-Boyfriend-Christmas/dp/B07VWFGRDX/)
-
 Beards are not just facial hair; they are a statement of masculinity and confidence. This Christmas, help your beloved man unleash his true potential with our Beard Care Kit.
 
 The Beard Care Kit is a comprehensive grooming solution that includes a beard oil, balm, comb, brush, and scissors, all neatly packaged in a stylish and compact travel case.
 
-**Pros:**
-
-✔️ Complete beard care kit for a well-groomed and healthy beard
-
-✔️ Natural ingredients in the beard oil and balm for nourishment and softness
-
-✔️ Ergonomic comb and brush for effortless styling and taming
-
-[Buy from Amazon](https://www.amazon.com/Gifts-Men-Anniversary-Boyfriend-Christmas/dp/B07VWFGRDX/)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Gifts-Men-Anniversary-Boyfriend-Christmas/dp/B07VWFGRDX/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Beard-Care-Kit-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Complete beard care kit for a well-groomed and healthy beard<br><br>
+      ✔️ Natural ingredients in the beard oil and balm for nourishment and softness<br><br>
+      ✔️ Ergonomic comb and brush for effortless styling and taming<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Gifts-Men-Anniversary-Boyfriend-Christmas/dp/B07VWFGRDX/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
 ### [35\. Relaxing Spa Gift Basket Set](https://www.amazon.com/Birthday-Relaxing-Christmas-Coworker-Teacher/dp/B0BB4JLLR7/)
 
-[](https://www.amazon.com/Birthday-Relaxing-Christmas-Coworker-Teacher/dp/B0BB4JLLR7/)
-
 In the hustle and bustle of life, we often forget to take a moment for ourselves, to recharge and find inner peace. This Christmas, give your beloved the gift of relaxation with our luxurious Spa Set.
 
 The Spa Set includes a scented candle, bath salts, shower gel, body lotion, and a plush bathrobe, all elegantly presented in a beautiful gift box. The scented candle creates a soothing ambiance, while the bath salts provide a blissful bathing experience, relieving stress and muscle tension.
 
-**Pros:**
-
-✔️ Complete spa set for a luxurious and indulgent experience
-
-✔️ Scented candle creates a relaxing ambiance
-
-✔️ Bath salts for a soothing and rejuvenating bath
-
-[Buy from Amazon](https://www.amazon.com/Birthday-Relaxing-Christmas-Coworker-Teacher/dp/B0BB4JLLR7/)
-
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Happy-Birthday-Dog-Treat-Gift-Box.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Birthday-Relaxing-Christmas-Coworker-Teacher/dp/B0BB4JLLR7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Relaxing-Spa-Gift-Basket-Set-960x960.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Offers a variety of flavors to satisfy different preferences<br><br>
-      ✔️ Perfect for medium and large breed dogs<br><br>
-      ✔️ Includes both savory and sweet treats for a balanced assortment<br><br>
-      <p class="text-center"><a href="https://www.amazon.com/Three-Mutts-Market-Birthday-Decorated/dp/B0B85BFM6H/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Complete spa set for a luxurious and indulgent experience<br><br>
+      ✔️ Scented candle creates a relaxing ambiance<br><br>
+      ✔️ Bath salts for a soothing and rejuvenating bath<br><br>
+      <p class="text-center"><a href="https://www.amazon.com/Birthday-Relaxing-Christmas-Coworker-Teacher/dp/B0BB4JLLR7/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
