@@ -471,7 +471,7 @@ You can customize your very own puzzle by adding your favorite photos, each phot
     </div>
 </div>
 
-### [25\. Stainless Steel Whisky Ice Balls](https://www.amazon.com/XL-Stainless-Balls-Special-Freezer/dp/B07NP7T2HD/
+### [25\. Stainless Steel Whisky Ice Balls](https://www.amazon.com/XL-Stainless-Balls-Special-Freezer/dp/B07NP7T2HD/)
 
 Indulge in the ultimate New Year's Eve as you honor your friends and relatives with the finest present they'll cherish forever. Elevate their whiskey sipping moments with our Stainless Steel Whisky Ice Balls, offering a touch of luxury and innovation like no other.
 
