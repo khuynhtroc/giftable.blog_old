@@ -104,7 +104,7 @@ The cool and upgraded design features LED eyes, charming voice, machine guns, an
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Rechargeable-Intelligent-Programmable-Christmas-Birthday/dp/B09BNCLLST/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="" alt="35 Best Toys for 5 Year Old Boys"></a>
+      <a href="https://www.amazon.com/Rechargeable-Intelligent-Programmable-Christmas-Birthday/dp/B09BNCLLST/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/71Pw-fAkYVL._AC_SL1500_.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
