@@ -99,7 +99,7 @@ The Ribbli Grosgrain Halloween Pumpkin Ribbon features a delightful pattern of v
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Ribbli-Grosgrain-Halloween-Pumpkins-Wrapping/dp/B09B1S3VNC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230602/Pumpkins" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Ribbli-Grosgrain-Halloween-Pumpkins-Wrapping/dp/B09B1S3VNC/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/51lJHfrYhwL._AC_SL1500_.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -505,18 +505,6 @@ With a width of 2.5 inches and an ample length, you'll have plenty of ribbon to 
 Unleash the spookiness of Halloween with the Black Bat Halloween Ribbon. This bewitching ribbon is the perfect choice for creating a hauntingly beautiful atmosphere during the Halloween festival.
 
 The wired edges of the ribbon make it easy to shape and manipulate, allowing you to create bows, curls, and other intricate designs effortlessly.
-
-**Pros**
-
-✔️ Striking and Creepy Design
-
-✔️ Wired Edges for Easy Shaping
-
-✔️ High-Quality Material
-
-✔️ Ample Length for Various Uses
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1390667102/black-bat-halloween-ribbon-10-yard-wired)
 
 <div class="f-grid">
     <div class="f-grid-col">
