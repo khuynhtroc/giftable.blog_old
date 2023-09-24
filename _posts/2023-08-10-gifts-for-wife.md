@@ -580,7 +580,7 @@ This sea creature stone help chill drinks and cocktails without diluting their l
       <i>Pros</i><br><br>
       ✔️ Adorable animal design<br><br>
       ✔️ Made from high-quality materials<br><br>
-      ✔️<br><br>
+      ✔️ Not just for scotch<br><br>
       <p class="text-center"><a href="https://www.uncommongoods.com/product/scotch-ness-critter-chilling-stone" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
