@@ -238,9 +238,9 @@ This carefully curated cocktail kit brings together a collection of premium ingr
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️<br><br>
-      ✔️<br><br>
-      ✔️<br><br>
+      ✔️ Elevate Your Sipping Experience<br><br>
+      ✔️ Masterful Mixology, Anytime, Anywhere<br><br>
+      ✔️ Mixology in Your Pocket<br><br>
       <p class="text-center"><a href="https://www.amazon.com/Premium-Cocktail-Kit-Inspired-Cocktails/dp/B07GGQ9W9F/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
