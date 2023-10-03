@@ -27,7 +27,7 @@ Measuring approximately 6 inches tall, this figure is perfectly sized to stand o
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/VONADO-Walter-Pinkman-Building-Figure/dp/B0BSGQRBB2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Walter-Pinkman-Building-Figure.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/VONADO-Walter-Pinkman-Building-Figure/dp/B0BSGQRBB2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Walter-Pinkman-Building-Figure.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -46,7 +46,7 @@ Children will enjoy building such a special toy, which will also keep them away 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Building-Creative-Educational-Decoration/dp/B094YH4FPV/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Break-Bad-Car-Building-Blocks.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Building-Creative-Educational-Decoration/dp/B094YH4FPV/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Break-Bad-Car-Building-Blocks.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -65,7 +65,7 @@ Each plush is meticulously crafted, featuring vibrant colors, accurate facial ex
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Youtooz-Breaking-Plush-Detailed-Super/dp/B0BG3JCMG1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Plush-Pink-Bear.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Youtooz-Breaking-Plush-Detailed-Super/dp/B0BG3JCMG1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Plush-Pink-Bear.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -84,7 +84,7 @@ Its sleek and eye-catching design features the iconic Breaking Bad logo, instant
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/FRUOR-Breaking-Decoration-Accessories-Wristband/dp/B0BF9CP6CR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Movie-Shoe-Decoration.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/FRUOR-Breaking-Decoration-Accessories-Wristband/dp/B0BF9CP6CR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Movie-Shoe-Decoration.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -103,7 +103,7 @@ Measuring approximately 13 x 9 1/2 x 3/8 with a handle, this cutting board provi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Engraved-Cutting-Birthday-Christmas/dp/B01N4VR5IF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Engraved-Cutting-Board.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Engraved-Cutting-Birthday-Christmas/dp/B01N4VR5IF/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Engraved-Cutting-Board.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -122,7 +122,7 @@ With measurements ranging from Small to 3X-Large, this shirt provides a perfect 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Drawn-Heisenberg-Shirt-Medium/dp/B06XPJQZ3F/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Drawn-Heisenberg-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Drawn-Heisenberg-Shirt-Medium/dp/B06XPJQZ3F/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Drawn-Heisenberg-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -141,7 +141,7 @@ Measuring about 5.75 inches in height and with a capacity of 16 ounces, this bee
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Bad-Beer-Mug/dp/B0748GPM55/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Beer-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Bad-Beer-Mug/dp/B0748GPM55/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Beer-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -160,7 +160,7 @@ The grill gloves measure approximately 13.7 inches in length, offering ample cov
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/WZMPA-Holders-Grilling-Gloves-Friend/dp/B0B4D8YQ17/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Grill-Gloves.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/WZMPA-Holders-Grilling-Gloves-Friend/dp/B0B4D8YQ17/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Grill-Gloves.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -179,7 +179,7 @@ Manual measuring in 1.18 inch, this danger sign is perfectly sized to be display
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Inspired-Breaking-Chemistry-Teacher-danger/dp/B09DSKX6KD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Chemistry-Teacher-Danger-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Inspired-Breaking-Chemistry-Teacher-danger/dp/B09DSKX6KD/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Chemistry-Teacher-Danger-Sign.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -198,7 +198,7 @@ Feature in 13.4 - 24 inches, Whether it is men, women, fat or thin, the long tie
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Cooking-Pockets-Kitchen-Birthday-Creative/dp/B093BMNVL7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Funny-Cooking-Chef-Apron.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Cooking-Pockets-Kitchen-Birthday-Creative/dp/B093BMNVL7/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Funny-Cooking-Chef-Apron.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -217,7 +217,7 @@ Each sticker measures approximately 2.6 x 2 x 0.01 inches, offering a versatile 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Waterproof-Stickers-Skateboard-Snowboard/dp/B07YVHH56C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Waterproof-Stickers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Waterproof-Stickers-Skateboard-Snowboard/dp/B07YVHH56C/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Waterproof-Stickers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -236,7 +236,7 @@ This 3 pack includes the most popular Breaking Bad items—The “Respect the Ch
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Walter-White-Pack-Heisenberg-Freshener/dp/B014LQUMLA/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Walter-White-Gifts.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Walter-White-Pack-Heisenberg-Freshener/dp/B014LQUMLA/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Walter-White-Gifts.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -255,7 +255,7 @@ Measuring approximately 18 x 24 inches, by displaying this poster, you create an
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1493522273/breaking-bad-poster-breaking-bad-vintage" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Vintage-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1493522273/breaking-bad-poster-breaking-bad-vintage" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Vintage-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -274,7 +274,7 @@ This 11 x 14 inch prints come Framed in a sleek black polycarbonate frame that c
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/HWC-Trading-Framed-Print-Autograph/dp/B09WVZDN6J/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-TV-Series-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/HWC-Trading-Framed-Print-Autograph/dp/B09WVZDN6J/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-TV-Series-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -293,7 +293,7 @@ Including 100 Question Cards, 1 Die, Rules Card, ensuring more than 2 player in 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Quickplay-Questions-Television-Container-Officially/dp/B085122YNW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Television-Trivia-Game.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Quickplay-Questions-Television-Container-Officially/dp/B085122YNW/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Television-Trivia-Game.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -312,7 +312,7 @@ The shop has many sizes for you to choose from, suitable for both men and women 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Bad-Heisenberg-Horizon-Outline/dp/B083FH8W8D/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Desert-Horizon-Outline-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Bad-Heisenberg-Horizon-Outline/dp/B083FH8W8D/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Desert-Horizon-Outline-T-Shirt.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -331,7 +331,7 @@ Measuring approximately 17.7 inches long and 1 inch wide, this lanyard provides 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Walter-Lanyard-Keychain-Pinstant/dp/B09X3MGH7T/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Walter-Lanyard-Keychain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Walter-Lanyard-Keychain-Pinstant/dp/B09X3MGH7T/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Walter-Lanyard-Keychain.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -350,7 +350,7 @@ By wearing this enamel pin, you instantly connect with fellow Breaking Bad enthu
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Heisenberg-Breaking-Enamel-Backpack-Jacket/dp/B09MR7MJVB/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Enamel-Pin.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Heisenberg-Breaking-Enamel-Backpack-Jacket/dp/B09MR7MJVB/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Enamel-Pin.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -369,7 +369,7 @@ Measuring approximately 9,8 x 6,7 inches, this compact bag is perfectly sized to
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Makeup-Merchandise-Zipper-Toiletry/dp/B0BQLZH5M6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Makeup-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Makeup-Merchandise-Zipper-Toiletry/dp/B0BQLZH5M6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Makeup-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -388,7 +388,7 @@ This vintage poster is pretty to fit various spaces in your home or office. The 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/DIANSHANG-Breaking-Posters-Aesthetic-Unframe/dp/B0BKR1LBGN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/DIANSHANG-Breaking-Bad-Posters.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/DIANSHANG-Breaking-Posters-Aesthetic-Unframe/dp/B0BKR1LBGN/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/DIANSHANG-Breaking-Bad-Posters.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -407,7 +407,7 @@ At first glance, the Ysirseu Breaking Bad Minimal Poster showcases a sleek and m
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Ysirseu-Breaking-Minimal-Inches-Garage/dp/B09TVMMC34/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Ysirseu-Breaking-Bad-Minimal-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Ysirseu-Breaking-Minimal-Inches-Garage/dp/B09TVMMC34/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Ysirseu-Breaking-Bad-Minimal-Poster.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -426,7 +426,7 @@ Crafted with sturdy white ceramic, this mug ensures a delightful drinking experi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/BETTER-CALL-SAUL-White-Ceramic/dp/B07H7CT3PR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/White-Ceramic-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/BETTER-CALL-SAUL-White-Ceramic/dp/B07H7CT3PR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/White-Ceramic-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -445,7 +445,7 @@ Its slightly rounded shape, adorned with colorful and lovely patterns, is sure t
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/family-Kitchen-Ceramic-Friends-Housewarming/dp/B09CQJ2PNR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Family-Kitchen-Ceramic-Mug-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/family-Kitchen-Ceramic-Friends-Housewarming/dp/B09CQJ2PNR/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Family-Kitchen-Ceramic-Mug-Set.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -464,7 +464,7 @@ Beyond its visually striking design, this wall art offers hidden benefits that a
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Stupell-Industries-Heisenberg-Breaking-Portrait/dp/B085D4Q4Y9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Heisenberg-Portrait-Wall-Art.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Stupell-Industries-Heisenberg-Breaking-Portrait/dp/B085D4Q4Y9/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Heisenberg-Portrait-Wall-Art.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -483,7 +483,7 @@ With a capacity of 14 fluid ounces, this travel mug offers ample space for your 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1308293309/breaking-bad-stainless-steel-travel-mug" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Stainless-Steel-Travel-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1308293309/breaking-bad-stainless-steel-travel-mug" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Stainless-Steel-Travel-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -502,7 +502,7 @@ At first glance, the Head Shot Sketch Tank Top presents a striking black and whi
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Bad-Heisenberg-Head-Sketch/dp/B07SVBH93P/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Head-Shot-Sketch-Tank-Top.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Bad-Heisenberg-Head-Sketch/dp/B07SVBH93P/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Head-Shot-Sketch-Tank-Top.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -521,7 +521,7 @@ This 11OZ coffee mug has a high definition printing on both sides, perfect eithe
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Inspired-Heisenberg-Coffee-Mug/dp/B07XRFFPN1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Heisenberg-Coffee-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Inspired-Heisenberg-Coffee-Mug/dp/B07XRFFPN1/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Heisenberg-Coffee-Mug.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -540,7 +540,7 @@ Measuring 3.5 x 2 x 0.12 inches, these stickers are perfectly sized to fit vario
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Breaking-Merchandise-Stickers-Waterproof-Skateboard/dp/B0BRWM6K77/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Merchandise-Stickers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Breaking-Merchandise-Stickers-Waterproof-Skateboard/dp/B0BRWM6K77/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Merchandise-Stickers.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -559,7 +559,7 @@ The sterling silver material adds a touch of luxury while also making them hypoa
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Compatible-Breaking-Earrings-STERLING-Christmas/dp/B0BLF125FM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Compatible-Earrings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Compatible-Breaking-Earrings-STERLING-Christmas/dp/B0BLF125FM/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Compatible-Earrings.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -578,7 +578,7 @@ Standing at 8 inches tall, this bobblehead is the perfect size to proudly displa
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Royal-Bobbles-Bobblehead-Polyresin-Exquisite/dp/B0C4MRCCSQ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Bobblehead.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Royal-Bobbles-Bobblehead-Polyresin-Exquisite/dp/B0C4MRCCSQ/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Bobblehead.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -597,7 +597,7 @@ It measures 12 x 6 inches and is designed to fit most standard license plate hol
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Celebrity-Machines-Breaking-Goodmans-LWYRUP/dp/B00DTE70G6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Metal-Stamped-License-Plate.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/Celebrity-Machines-Breaking-Goodmans-LWYRUP/dp/B00DTE70G6/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Metal-Stamped-License-Plate.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -616,7 +616,7 @@ The words are beautifully printed on the front, surrounded by an intricate patte
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/LEVLO-Breaking-Cosmetic-Inspired-Knocks/dp/B098PXQP62/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Cosmetic-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/LEVLO-Breaking-Cosmetic-Inspired-Knocks/dp/B098PXQP62/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Cosmetic-Bag.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
@@ -635,7 +635,7 @@ With capacity approximately 16 ounces, this cup provides ample capacity to hold 
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/JUST-FUNKY-BB-CC-4959-Jfc-Breaking-Carnival/dp/B01M32CKPG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/Breaking-Bad-Carnival-Cup.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
+      <a href="https://www.amazon.com/JUST-FUNKY-BB-CC-4959-Jfc-Breaking-Carnival/dp/B01M32CKPG/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230605/Breaking-Bad-Carnival-Cup.jpg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
