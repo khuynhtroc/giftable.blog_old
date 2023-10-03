@@ -669,25 +669,15 @@ Give the new dad in your life a gift that he will treasure forever. The Mini Pho
 
 Handcrafted with utmost care, our mini photo album keychain is made from genuine leather and thick photo paper. You can choose from six stunning leather colors to match your personal style. Its compact size allows it to fit comfortably in pocket or attach it to your keys.
 
-**Pros:**
-
-✔️ Easy to carry your memories
-
-✔️ Unique gift with various colors
-
-✔️ Durable and Long-lasting keepsake
-
-[Buy from Etsy](https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1088130065/mini-photo-album-keychain-personalized)
-
 <div class="f-grid">
     <div class="f-grid-col">
       <a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1088130065/mini-photo-album-keychain-personalized" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230603/Mini-Photo-Album-Keychain.jpeg" alt="35 Gifts for New Boyfriend That'll Make Him Surprise In 2023"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ Unforgettable and amusing entertainment<br><br>
-      ✔️ Compact size makes it easy to carry<br><br>
-      ✔️ The dancing and yodeling motion<br><br>
+      ✔️ Easy to carry your memories<br><br>
+      ✔️ Unique gift with various colors<br><br>
+      ✔️ Durable and Long-lasting keepsake<br><br>
       <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1088130065/mini-photo-album-keychain-personalized" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
