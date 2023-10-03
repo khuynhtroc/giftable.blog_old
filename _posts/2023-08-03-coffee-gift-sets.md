@@ -235,7 +235,7 @@ If your loved ones crave a bold taste, enticing aroma, and the authenticity of l
 
 <div class="f-grid">
     <div class="f-grid-col">
-      <a href="https://www.amazon.com/Brooklyn-Beans-Bagged-Ground-Variety/dp/B07XZN1NG2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="" alt="Best Coffee Gift Sets for Every Coffee Lover"></a>
+      <a href="https://www.amazon.com/Brooklyn-Beans-Bagged-Ground-Variety/dp/B07XZN1NG2/" target="_blank" rel="nofollow,noindex" ><img class="img-thumb lazyimg" src="/img/post/20230604/81ozC50D96L._SL1500_.jpg" alt="Best Coffee Gift Sets for Every Coffee Lover"></a>
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
