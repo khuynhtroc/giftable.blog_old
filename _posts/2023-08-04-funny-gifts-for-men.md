@@ -268,9 +268,9 @@ This charming Candle is a perfect way to show your appreciation and affection fo
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️<br><br>
-      ✔️<br><br>
-      ✔️<br><br>
+      ✔️ Non-toxic, Vegan and Animal Cruelty-free<br><br>
+      ✔️ Our Materials and Packaging are 100% Recyclable<br><br>
+      ✔️ Our Materials and Packaging are 100% Recyclab<br><br>
       <p class="text-center"><a href="https://www.awin1.com/cread.php?awinmid=10690&awinaffid=963277&platform=cl&ued=https://www.etsy.com/listing/1383625720/i-love-you-for-your-personality-gift-for" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
