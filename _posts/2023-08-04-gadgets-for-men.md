@@ -205,9 +205,9 @@ Possessing 9-in-1 functionality including pliers, a knife, screwdrivers, and mor
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      ✔️ 9-in-1 features for a pen
-      ✔️ Compact and portable
-      ✔️ A reliable companion for everyday tasks
+      ✔️ 9-in-1 features for a pen<br><br>
+      ✔️ Compact and portable<br><br>
+      ✔️ A reliable companion for everyday tasks<br><br>
       <p class="text-center"><a href="https://www.amazon.com/HONREAL-Multitool-Boyfriend-Christmas-Day%EF%BC%8CBirthday/dp/B09XN8HQYF/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
