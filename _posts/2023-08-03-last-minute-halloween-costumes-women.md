@@ -181,9 +181,9 @@ The Headband Hairband Bowknot features a unique and eye-catching design that add
     </div>
     <div class="f-grid-col">
       <i>Pros</i><br><br>
-      <br><br>
-      <br><br>
-      <br><br>
+       ✔️ Lace,Silk <br><br>
+       ✔️ Hand Wash Only <br><br>
+       ✔️ Light weigh and fit human`s head well <br><br>
       <p class="text-center"><a href="https://www.amazon.com/Headband-Hairband-Bowknot-Halloween-Costume/dp/B08BL8RPSF/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
