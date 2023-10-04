@@ -3,7 +3,7 @@ title: Giftable - Gift Hub
 SEOTitle: Giftable
 description: Jekyll version of the blog theme Gungnir.
 keyword: "gift"
-url: "https://giftable.blog"      # your host, for absolute URL
+url: ""      # your host, for absolute URL
 baseurl: ""                                         # for example, '/blog' if your blog hosted on 'host/blog'
 avatar: "img/Logo-giftable.jpg"                    # the avatar showing on the homepage
 allow_search_engine: false
