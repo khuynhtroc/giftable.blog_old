@@ -51,7 +51,8 @@ Measuring 17 inches long, 13 inches wide, and 9 inches high, this golf trunk org
       ✔️ Ample storage space for all your golf gear<br><br>
       ✔️ Durable and water-resistant materials for long-lasting use<br><br>
       ✔️ Convenient compartments and pockets for easy organization<br><br>
-      ✔️ Portable design with reinforced handles for effortless transportation<br><br>     <p class="text-center"><a href="https://www.amazon.com/Athletico-Golf-Trunk-Organizer-Black/dp/B07YVLTXN5/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
+      ✔️ Portable design with reinforced handles for effortless transportation<br><br> 
+      <p class="text-center"><a href="https://www.amazon.com/Athletico-Golf-Trunk-Organizer-Black/dp/B07YVLTXN5/" target="_blank" rel="nofollow,noindex" ><button type="button" class="btn btn-primary">Buy from Amazon</button></a></p>
     </div>
 </div>
 
